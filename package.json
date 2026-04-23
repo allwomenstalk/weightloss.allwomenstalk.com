@@ -71,7 +71,7 @@
     "glob": "^10.3.4",
     "marked": "^5.1.0",
     "moment": "^2.29.4",
-    "mongodb": "^5.5.0",
+    "mongodb": "^7.2.0",
     "puppeteer": "^22.7.1",
     "showdown": "^2.1.0"
   }
