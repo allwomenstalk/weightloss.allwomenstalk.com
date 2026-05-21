@@ -3,7 +3,7 @@ title: "11 Fun Foods to Trick Your Sweet Tooth ..."
 description: "Dates and Almonds; Sorbet; Dark Chocolate Coconut Water; Dressed-up Yogurt; Smoothie; More ..."
 url: "https://weightloss.allwomenstalk.com/fun-foods-to-trick-your-sweet-tooth/"
 category: "weightloss"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 11 Fun Foods to Trick Your Sweet Tooth ...
