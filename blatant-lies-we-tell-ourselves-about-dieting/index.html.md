@@ -3,7 +3,7 @@ title: "7 Blatant Lies We Tell Ourselves about Dieting ..."
 description: "I’ll Start Tomorrow…or Monday; I Deserve a Treat Because I’ve Had a Hard Day; One Cookie Won’t Hurt That Much; Liquid Calories Aren’t That Big of a Deal; A Bite Here and There Doesn’t Count; More ..."
 url: "https://weightloss.allwomenstalk.com/blatant-lies-we-tell-ourselves-about-dieting/"
 category: "weightloss"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Blatant Lies We Tell Ourselves about Dieting ...
@@ -42,16 +42,16 @@ These are 7 blatant lies we tell ourselves about dieting. Which ones have you fa
 
 ## Related Posts
 
-- [7 Major Reasons Your Smoothies Arent Working  ...](https://weightloss.allwomenstalk.com/why-your-smoothies-arent-helping-you-lose-weight/)
-- [Why Are You Always so Hungry](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
-- [You Will Not Believe What Trans Fats Are Doing to ...](https://diet.allwomenstalk.com/you-will-not-believe-what-trans-fats-are-doing-to-your-body/)
-- [Are You Eating More than You Realize](https://weightloss.allwomenstalk.com/are-you-eating-more-than-you-realize/)
-- [hand diet](https://weightloss.allwomenstalk.com/what-should-you-know-about-the-hand-diet/)
-- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
-- [Nobody Tells You These 7 Things about Weight Loss ...](https://weightloss.allwomenstalk.com/nobody-tells-you-these-things-about-weight-loss/)
-- [Shocking This is Why We Weigh More than People 50 ...](https://health.allwomenstalk.com/why-do-people-weigh-more-now-than-years-ago/)
 - [Dont Lose Weight if These Apply to You](https://weightloss.allwomenstalk.com/you-do-not-need-to-lose-weight-if-these-are-true-for-you/)
+- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
+- [hand diet](https://weightloss.allwomenstalk.com/what-should-you-know-about-the-hand-diet/)
+- [Why Are You Always so Hungry](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
 - [Hard-Hitting Reasons for Giving up Soda for Girls ...](https://health.allwomenstalk.com/and-this-is-why-they-gave-up-diet-soda/)
+- [Are You Eating More than You Realize](https://weightloss.allwomenstalk.com/are-you-eating-more-than-you-realize/)
+- [Nobody Tells You These 7 Things about Weight Loss ...](https://weightloss.allwomenstalk.com/nobody-tells-you-these-things-about-weight-loss/)
+- [7 Major Reasons Your Smoothies Arent Working  ...](https://weightloss.allwomenstalk.com/why-your-smoothies-arent-helping-you-lose-weight/)
+- [You Will Not Believe What Trans Fats Are Doing to ...](https://diet.allwomenstalk.com/you-will-not-believe-what-trans-fats-are-doing-to-your-body/)
+- [Shocking This is Why We Weigh More than People 50 ...](https://health.allwomenstalk.com/why-do-people-weigh-more-now-than-years-ago/)
 - [7 Crazy Myths about Weight Loss ...](https://weightloss.allwomenstalk.com/crazy-myths-about-weight-loss/)
 - [7 Faux-Pas for Dieters to Avoid ...](https://diet.allwomenstalk.com/faux-pas-for-dieters-to-avoid/)
 
