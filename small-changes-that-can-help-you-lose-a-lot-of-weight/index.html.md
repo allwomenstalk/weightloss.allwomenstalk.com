@@ -68,15 +68,15 @@ This article was written in collaboration with editor Lisa Washington
 
 ## Related Posts
 
-- [top ways to lose weight](https://diet.allwomenstalk.com/overlooked-ways-to-lose-weight/)
-- [how to lean down quickly](https://celebs.allwomenstalk.com/tips-from-celebrity-trainers-that-will-trim-you-down-quickly/)
-- [light lunches for weight loss](https://weightloss.allwomenstalk.com/light-lunches-for-weight-loss/)
 - [7 Secret Ways Your Liver Helps You Lose Belly Fat ...](https://diet.allwomenstalk.com/secret-ways-your-liver-helps-you-lose-belly-fat/)
 - [metabolism fast tips](https://diet.allwomenstalk.com/tips-to-remember-from-the-fast-metabolism-diet/)
 - [10 commandments of weight loss](https://diet.allwomenstalk.com/weight-loss-commandments/)
 - [does zumba work for weight loss](https://weightloss.allwomenstalk.com/amazing-benefits-of-zumba-that-will-make-you-dance-your-way-to-weight-loss/)
 - [how to wake up metabolism](https://weightloss.allwomenstalk.com/ways-to-wake-up-your-metabolism-and-lose-weight/)
+- [light lunches for weight loss](https://weightloss.allwomenstalk.com/light-lunches-for-weight-loss/)
 - [burning 400 calories a day is good](https://fitness.allwomenstalk.com/easy-ways-to-burn-400-calories/)
+- [how to lean down quickly](https://celebs.allwomenstalk.com/tips-from-celebrity-trainers-that-will-trim-you-down-quickly/)
+- [top ways to lose weight](https://diet.allwomenstalk.com/overlooked-ways-to-lose-weight/)
 - [is surfing a good way to lose weight](https://weightloss.allwomenstalk.com/ways-to-surf-your-way-slim/)
 - [12 Best Ways to Lose Weight ...](https://allwomenstalk.com/12-best-ways-to-lose-weight/)
 - [13 Most Extreme Ways to Lose Weight ...](https://allwomenstalk.com/9-most-extreme-ways-to-lose-weight/)

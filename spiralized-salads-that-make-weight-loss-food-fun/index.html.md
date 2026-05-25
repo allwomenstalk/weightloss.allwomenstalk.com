@@ -236,16 +236,16 @@ _ Vegan Kale and Sweet Potato_
 
 ## Related Posts
 
-- [Calcium-Packed Foods for Girls Who Want Stronger B...](https://health.allwomenstalk.com/these-foods-are-a-surefire-way-to-get-stronger-bones/)
-- [Stay on Your Diet by Putting This on Your Salad Pl...](https://diet.allwomenstalk.com/stay-on-your-diet-by-putting-this-on-your-salad-plate/)
-- [7 Seeds to Eat Now for a Healthier You in 2 Weeks ...](https://weightloss.allwomenstalk.com/healthy-seeds-you-should-be-snacking-on/)
-- [7 Tasty Nighttime Snacks to Keep You in Shape ...](https://food.allwomenstalk.com/tasty-nighttime-snacks-to-keep-you-in-shape/)
 - [Super Foods for Women Who Need a Serious Mood Boos...](https://food.allwomenstalk.com/eat-these-foods-when-you-need-a-mood-boost/)
+- [Calcium-Packed Foods for Girls Who Want Stronger B...](https://health.allwomenstalk.com/these-foods-are-a-surefire-way-to-get-stronger-bones/)
+- [7 Seeds to Eat Now for a Healthier You in 2 Weeks ...](https://weightloss.allwomenstalk.com/healthy-seeds-you-should-be-snacking-on/)
+- [This is What the Healthiest Girls Keep in Their Fr...](https://food.allwomenstalk.com/what-you-should-have-in-your-fridge-at-all-times/)
 - [Delicious Power Foods for a Healthy Brain ...](https://food.allwomenstalk.com/boost-your-brain-power-by-eating-these-foods/)
 - [Healthiest Options from Chain Restaurants ...](https://diet.allwomenstalk.com/healthiest-options-from-chain-restaurants/)
-- [Superfoods for Girls Who Need an Instant Productiv...](https://food.allwomenstalk.com/chow-down-on-these-superfoods-to-increase-productivity/)
-- [This is What the Healthiest Girls Keep in Their Fr...](https://food.allwomenstalk.com/what-you-should-have-in-your-fridge-at-all-times/)
+- [7 Tasty Nighttime Snacks to Keep You in Shape ...](https://food.allwomenstalk.com/tasty-nighttime-snacks-to-keep-you-in-shape/)
 - [11 Foods Your Skin Will Thank You for Eating ...](https://food.allwomenstalk.com/foods-that-are-healthy-for-your-skin/)
+- [Superfoods for Girls Who Need an Instant Productiv...](https://food.allwomenstalk.com/chow-down-on-these-superfoods-to-increase-productivity/)
+- [Stay on Your Diet by Putting This on Your Salad Pl...](https://diet.allwomenstalk.com/stay-on-your-diet-by-putting-this-on-your-salad-plate/)
 - [Flavor-Boosting Add-ins to Make Your Salads More E...](https://food.allwomenstalk.com/awesome-salad-add-ins-worth-trying-out/)
 - [Super Slaws That Put Sunshine on Your Plate ...](https://food.allwomenstalk.com/super-slaws-that-put-sunshine-on-your-plate/)
 

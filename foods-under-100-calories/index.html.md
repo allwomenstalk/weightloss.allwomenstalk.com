@@ -53,15 +53,15 @@ Top Photo Credit: [Jeremyiah](https://www.flickr.com/photos/jeremyiah/3232988528
 ## Related Posts
 
 - [spam while pregnant](https://parenting.allwomenstalk.com/7-foods-to-avoid-while-pregnant/)
-- [7 Quick but Nutritious Breakfast Ideas ...](https://diet.allwomenstalk.com/quick-but-nutritious-breakfast-ideas/)
 - [great finger foods for babies](https://parenting.allwomenstalk.com/best-finger-foods-for-your-baby/)
-- [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
 - [9 Absolutely Mouthwatering Mood Foods to Drive Awa...](https://food.allwomenstalk.com/absolutely-mouthwatering-mood-foods-to-drive-away-those-blues/)
-- [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
-- [Top 9 Health Foods of 2012 ...](https://diet.allwomenstalk.com/top-health-foods-of/)
+- [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
+- [7 Quick but Nutritious Breakfast Ideas ...](https://diet.allwomenstalk.com/quick-but-nutritious-breakfast-ideas/)
 - [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
-- [do carbonated drinks affect breast milk](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
 - [things that go together like peanut butter and jel...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
+- [Top 9 Health Foods of 2012 ...](https://diet.allwomenstalk.com/top-health-foods-of/)
+- [do carbonated drinks affect breast milk](https://parenting.allwomenstalk.com/8-foods-to-avoid-while-breastfeeding/)
+- [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
 - [7 Foods with Least Calories ...](https://weightloss.allwomenstalk.com/foods-with-least-calories/)
 - [8 Wonderfully Delightful Low Calorie Fast Food Cho...](https://diet.allwomenstalk.com/wonderfully-delightful-low-calorie-fast-food-choices/)
 

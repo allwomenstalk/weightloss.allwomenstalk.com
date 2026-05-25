@@ -54,16 +54,16 @@ These 10 exercises are sure to get our legs ready for anything, including our sp
 
 ## Related Posts
 
-- [sitting on an exercise ball while watching tv](https://weightloss.allwomenstalk.com/ways-to-exercise-while-watching-tv/)
-- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
-- [workout tv show](https://weightloss.allwomenstalk.com/fun-tv-show-workout-routines/)
-- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
-- [how to make stomach tight](https://weightloss.allwomenstalk.com/ways-to-get-a-tight-stomach/)
-- [best cellulite exercise](https://health.allwomenstalk.com/best-cellulite-butt-workout-moves/)
-- [couch exercises to lose belly fat](https://weightloss.allwomenstalk.com/workouts-you-can-do-on-your-couch/)
 - [things to do while commuting](https://weightloss.allwomenstalk.com/ways-to-exercise-while-commuting/)
+- [how to make stomach tight](https://weightloss.allwomenstalk.com/ways-to-get-a-tight-stomach/)
+- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
+- [couch exercises to lose belly fat](https://weightloss.allwomenstalk.com/workouts-you-can-do-on-your-couch/)
+- [sitting on an exercise ball while watching tv](https://weightloss.allwomenstalk.com/ways-to-exercise-while-watching-tv/)
 - [13 Ways to Get a Better Butt ...](https://weightloss.allwomenstalk.com/ways-to-get-a-better-butt/)
+- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
+- [best cellulite exercise](https://health.allwomenstalk.com/best-cellulite-butt-workout-moves/)
 - [couples workout ideas](https://weightloss.allwomenstalk.com/7-workout-ideas-for-couples-2/)
+- [workout tv show](https://weightloss.allwomenstalk.com/fun-tv-show-workout-routines/)
 - [7 Exercises to Tone Your Calf Muscles ...](https://health.allwomenstalk.com/7-exercises-to-tone-your-calf-muscles/)
 - [Five Activities to Slim and Firm Thighs](https://allwomenstalk.com/five-activities-to-slim-and-firm-thighs/)
 

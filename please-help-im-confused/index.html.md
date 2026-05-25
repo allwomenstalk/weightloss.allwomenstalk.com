@@ -24,15 +24,15 @@ Im fairly active, i run 4km every morning and either do soccer training or a run
 
 - [Where Have I Been](https://allwomenstalk.com/where-have-i-been/)
 - [Would You Buy a Pen That Eva Green Was Promoting](https://celebs.allwomenstalk.com/eva-promotes-a-pen/)
-- [Boyfriend for 15 Minutes](https://allwomenstalk.com/boyfriend-for-15-minutes/)
+- [christmas at the jersey shore](https://celebs.allwomenstalk.com/jersey-shore-christmas-ornaments-yes-or-no-way/)
 - [Good Story or Pain Release](https://allwomenstalk.com/good-story-or-pain-release/)
-- [How is This Socially Acceptable](https://allwomenstalk.com/how-is-this-socially-acceptable/)
 - [New Opportunities Knocking.
 
 I Often Wonder Whethe...](https://allwomenstalk.com/new-opportunities-knockingi-often-wonder-whethe/)
-- [Candy](https://allwomenstalk.com/candy/)
+- [Boyfriend for 15 Minutes](https://allwomenstalk.com/boyfriend-for-15-minutes/)
+- [How is This Socially Acceptable](https://allwomenstalk.com/how-is-this-socially-acceptable/)
 - [Hand Care: do Your Hands Make You Look Older](https://allwomenstalk.com/hand-care-do-your-hands-make-you-look-older/)
-- [christmas at the jersey shore](https://celebs.allwomenstalk.com/jersey-shore-christmas-ornaments-yes-or-no-way/)
+- [Candy](https://allwomenstalk.com/candy/)
 - [What Did I do](https://allwomenstalk.com/what-did-i-do/)
 - [I Need Answers Damn It](https://7fun.net/i-need-answers-damn-it-2/)
 - [What do You Want](https://allwomenstalk.com/what-do-you-want-2/)

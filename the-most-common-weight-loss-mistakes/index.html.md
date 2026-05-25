@@ -72,16 +72,16 @@ Try not to have an all or nothing mindset, because even if you only lose 6 pound
 
 ## Related Posts
 
-- [Constantly Lose Weight through Vegan Diet](https://allwomenstalk.com/constantly-lose-weight-through-vegan-diet/)
-- [Diet Excuses....do You Fit in](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
-- [All You Need to Know about Dieting and Pregnancy. ...](https://allwomenstalk.com/what-to-eat-when-you-are-lady-in-waiting-or-what-everywoman-should-know-about-pregnancy-and-diet-part-1/)
 - [Why Am I so Fat - Modern Theories ...](https://allwomenstalk.com/why-am-i-so-fat-modern-theories/)
+- [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
+- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
+- [how do i stop thinking about food](https://weightloss.allwomenstalk.com/train-your-brain-to-stop-thinking-about-food-if-youre-on-the-road-to-losing-weight/)
+- [Diet Excuses....do You Fit in](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
 - [If Youre Having Trouble Losing Weight and Keeping ...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
 - [Can Chinese Food Resolve West Obesity](https://allwomenstalk.com/can-chinese-food-resolve-obesity/)
+- [All You Need to Know about Dieting and Pregnancy. ...](https://allwomenstalk.com/what-to-eat-when-you-are-lady-in-waiting-or-what-everywoman-should-know-about-pregnancy-and-diet-part-1/)
 - [Should You Fast to Detox](https://allwomenstalk.com/should-you-fast-to-detox/)
-- [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
-- [how do i stop thinking about food](https://weightloss.allwomenstalk.com/train-your-brain-to-stop-thinking-about-food-if-youre-on-the-road-to-losing-weight/)
-- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
+- [Constantly Lose Weight through Vegan Diet](https://allwomenstalk.com/constantly-lose-weight-through-vegan-diet/)
 - [7 Things That Sabotage Your Weight Loss Plan ...](https://weightloss.allwomenstalk.com/things-that-sabotage-your-weight-loss-plan/)
 - [20 Tips for Losing Weight ...](https://weightloss.allwomenstalk.com/tips-for-losing-weight-3/)
 

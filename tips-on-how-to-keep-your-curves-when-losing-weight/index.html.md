@@ -42,16 +42,16 @@ Well, my ladies, now you have a pretty good idea on how to keep your curves when
 
 ## Related Posts
 
-- [is going to the gym an extracurricular activity](https://weightloss.allwomenstalk.com/extracurricular-activities-that-help-fight-the-fat/)
-- [how to lose pounds in 3 days](https://weightloss.allwomenstalk.com/ways-to-lose-3-pounds-in-a-week/)
-- [how to lose weight while at school](https://weightloss.allwomenstalk.com/ways-to-lose-weight-during-the-school-year/)
-- [vegetables that are good for weight loss](https://weightloss.allwomenstalk.com/top-vegetables-for-weight-loss/)
-- [burning 100 calories](https://diet.allwomenstalk.com/more-ways-to-burn-100-calories-easily/)
-- [lose it weight milestones](https://diet.allwomenstalk.com/exciting-diet-milestones-to-look-forward-to/)
-- [womens weight loss tips](https://weightloss.allwomenstalk.com/weight-loss-tips-for-women-in-their-20s/)
 - [how to stay lean all year round](https://diet.allwomenstalk.com/tips-on-how-to-stay-lean-year-round/)
+- [lose it weight milestones](https://diet.allwomenstalk.com/exciting-diet-milestones-to-look-forward-to/)
+- [is going to the gym an extracurricular activity](https://weightloss.allwomenstalk.com/extracurricular-activities-that-help-fight-the-fat/)
+- [vegetables that are good for weight loss](https://weightloss.allwomenstalk.com/top-vegetables-for-weight-loss/)
 - [quick way to burn 100 calories](https://diet.allwomenstalk.com/ways-to-burn-100-calories-easily/)
 - [how to have a toned stomach](https://weightloss.allwomenstalk.com/tips-for-a-toned-stomach/)
+- [womens weight loss tips](https://weightloss.allwomenstalk.com/weight-loss-tips-for-women-in-their-20s/)
+- [how to lose weight while at school](https://weightloss.allwomenstalk.com/ways-to-lose-weight-during-the-school-year/)
+- [how to lose pounds in 3 days](https://weightloss.allwomenstalk.com/ways-to-lose-3-pounds-in-a-week/)
+- [burning 100 calories](https://diet.allwomenstalk.com/more-ways-to-burn-100-calories-easily/)
 - [10 Steps to Help You Love Your Curves ...](https://allwomenstalk.com/10-steps-to-help-you-love-your-curves/)
 - [7 Tips for Losing Weight ...](https://allwomenstalk.com/7-tips-for-losing-weight/)
 

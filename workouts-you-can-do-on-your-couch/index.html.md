@@ -42,16 +42,16 @@ Remember you are capable of finding time to exercise even if it is while you are
 
 ## Related Posts
 
-- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
 - [things to do while commuting](https://weightloss.allwomenstalk.com/ways-to-exercise-while-commuting/)
 - [best cellulite exercise](https://health.allwomenstalk.com/best-cellulite-butt-workout-moves/)
-- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
 - [couples workout ideas](https://weightloss.allwomenstalk.com/7-workout-ideas-for-couples-2/)
 - [best strength training dvds](https://fitness.allwomenstalk.com/great-workout-dvds-to-do-from-home/)
-- [working out in pajamas](https://weightloss.allwomenstalk.com/ways-to-start-working-out/)
 - [get bikini ready](https://weightloss.allwomenstalk.com/ways-to-get-bikini-ready-abs/)
 - [13 Ways to Get a Better Butt ...](https://weightloss.allwomenstalk.com/ways-to-get-a-better-butt/)
 - [healthyfitness](https://fitness.allwomenstalk.com/magazines-that-can-help-you-get-in-shape/)
+- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
+- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
+- [working out in pajamas](https://weightloss.allwomenstalk.com/ways-to-start-working-out/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [7 Top Exercises That You Can do around the House ....](https://allwomenstalk.com/top-7-exercises-you-can-do-around-the-house/)
 

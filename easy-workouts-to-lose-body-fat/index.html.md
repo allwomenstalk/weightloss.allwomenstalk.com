@@ -52,16 +52,16 @@ Cardio circuits are the perfect thing to boost your metabolism and also stop you
 
 ## Related Posts
 
-- [exercises for shapely legs](https://fitness.allwomenstalk.com/top-exercises-for-shapely-legs/)
+- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
+- [how to get rid of a flabby belly](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-a-flabby-tummy/)
+- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
 - [is it bad to shower after workout](https://fitness.allwomenstalk.com/why-you-should-always-shower-after-exercise/)
 - [gym workout chart](https://fitness.allwomenstalk.com/7-day-workout-plan-to-get-the-most-from-the-gym/)
+- [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
+- [exercises for shapely legs](https://fitness.allwomenstalk.com/top-exercises-for-shapely-legs/)
 - [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
 - [couch gym](https://fitness.allwomenstalk.com/how-to-go-from-being-a-couch-potato-to-a-gym-bunny/)
-- [how to get rid of a flabby belly](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-a-flabby-tummy/)
 - [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
-- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
-- [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
-- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [10 Top Exercises for Losing Butt Fat Fast ...](https://allwomenstalk.com/10-top-exercises-for-losing-butt-fat-with-2-bonus-exercises/)
 

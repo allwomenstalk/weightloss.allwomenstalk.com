@@ -56,16 +56,16 @@ So with these super effective tips, follow along. This will make it easier for y
 
 ## Related Posts
 
-- [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
-- [How to Make the Switch to Whole Grains for a Bette...](https://diet.allwomenstalk.com/how-to-make-the-switch-to-whole-grains-for-a-better-body/)
-- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
 - [How to Eat Fish to Get Maximum Health Benefits ...](https://diet.allwomenstalk.com/how-to-eat-fish-to-get-maximum-health-benefits/)
-- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
 - [Dont Let These Sneaky Menu Words Make You Eat Unhe...](https://health.allwomenstalk.com/dont-let-these-sneaky-menu-words-make-you-eat-unhealthy/)
+- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
 - [7 Ways to Reverse Bad Diet Decisions ...](https://weightloss.allwomenstalk.com/ways-to-reverse-bad-diet-decisions/)
-- [healthy dining out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out-2/)
-- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
+- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
 - [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
+- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
+- [How to Make the Switch to Whole Grains for a Bette...](https://diet.allwomenstalk.com/how-to-make-the-switch-to-whole-grains-for-a-better-body/)
+- [healthy dining out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out-2/)
+- [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
 - [9 Tips That Make Dieting Go Smoothly ...](https://diet.allwomenstalk.com/tips-that-make-dieting-go-smoothly/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 

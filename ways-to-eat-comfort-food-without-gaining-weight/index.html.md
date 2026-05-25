@@ -42,16 +42,16 @@ What’s your favorite comfort food?
 
 ## Related Posts
 
-- [How to Prevent Sugar from Sneaking into Your Food ...](https://diet.allwomenstalk.com/how-to-prevent-sugar-from-sneaking-into-your-food/)
-- [How to Start the New Year off on a Healthier Foot ...](https://health.allwomenstalk.com/how-to-start-the-new-year-off-on-a-healthier-foot/)
-- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
-- [Eat Healthier by Setting These New Years Resolutio...](https://diet.allwomenstalk.com/eat-healthier-by-setting-these-new-years-resolutions-for-yourself/)
-- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
-- [How to Stick to Your New Years Resolution of Eatin...](https://diet.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-eating-more-healthily/)
-- [7 Tips to Snack Smarter and Gain Less ...](https://food.allwomenstalk.com/tips-to-snack-smarter-and-gain-less/)
-- [These 7 Tips Will Help You Tackle Comfort Food Cra...](https://diet.allwomenstalk.com/these-tips-will-help-you-tackle-comfort-food-cravings/)
 - [You Can Control Your Appetite if You do These Simp...](https://weightloss.allwomenstalk.com/you-can-control-your-appetite-if-you-do-these-simple-things/)
+- [These 7 Tips Will Help You Tackle Comfort Food Cra...](https://diet.allwomenstalk.com/these-tips-will-help-you-tackle-comfort-food-cravings/)
+- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
+- [How to Start the New Year off on a Healthier Foot ...](https://health.allwomenstalk.com/how-to-start-the-new-year-off-on-a-healthier-foot/)
 - [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
+- [Eat Healthier by Setting These New Years Resolutio...](https://diet.allwomenstalk.com/eat-healthier-by-setting-these-new-years-resolutions-for-yourself/)
+- [7 Tips to Snack Smarter and Gain Less ...](https://food.allwomenstalk.com/tips-to-snack-smarter-and-gain-less/)
+- [How to Stick to Your New Years Resolution of Eatin...](https://diet.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-eating-more-healthily/)
+- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
+- [How to Prevent Sugar from Sneaking into Your Food ...](https://diet.allwomenstalk.com/how-to-prevent-sugar-from-sneaking-into-your-food/)
 - [7 Healthy and Diet-Friendly Alternatives to Your F...](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
 - [7 Simple Ways to Improve Your Diet without Deprivi...](https://allwomenstalk.com/7-simple-ways-to-improve-your-diet-without-depriving-yourself/)
 

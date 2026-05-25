@@ -30,16 +30,16 @@ Since weight loss is a pointless New Year’s resolution, I would suggest making
 
 ## Related Posts
 
-- [9 Topics of Conversation You Should Avoid during Y...](https://love.allwomenstalk.com/topics-of-conversation-you-should-avoid-during-your-first-date/)
-- [5  Things You Shouldnt do on the First Date ...](https://love.allwomenstalk.com/things-you-shouldnt-do-on-the-first-date/)
-- [5 Things You Should Never Say to Your Man  ...](https://love.allwomenstalk.com/things-to-never-say-to-your-man/)
-- [5 Things You Should Never Say to a College Student...](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-a-college-student/)
-- [Types of People You Should Avoid Dating ...](https://love.allwomenstalk.com/types-of-people-you-should-avoid-dating/)
-- [3 Things You Might Not Think Are Cheating but Are ...](https://love.allwomenstalk.com/things-that-you-might-not-consider-as-cheating/)
 - [Nix These Things if You Want to Be Successful ...](https://inspiration.allwomenstalk.com/nix-these-things-if-you-want-to-be-successful/)
-- [Things You Should Never do when Youre Breaking up ...](https://love.allwomenstalk.com/things-you-should-never-do-when-you-re-breaking-up-with-someone/)
-- [What NOT to Put on a Resume ...](https://money.allwomenstalk.com/what-not-to-put-on-a-resume/)
+- [Types of People You Should Avoid Dating ...](https://love.allwomenstalk.com/types-of-people-you-should-avoid-dating/)
+- [5 Things You Should Never Say to a College Student...](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-a-college-student/)
 - [5 Things You Shouldnt do when Cramming  for Finals...](https://teen.allwomenstalk.com/things-you-shouldnt-do-when-cramming-for-finals/)
+- [9 Topics of Conversation You Should Avoid during Y...](https://love.allwomenstalk.com/topics-of-conversation-you-should-avoid-during-your-first-date/)
+- [3 Things You Might Not Think Are Cheating but Are ...](https://love.allwomenstalk.com/things-that-you-might-not-consider-as-cheating/)
+- [What NOT to Put on a Resume ...](https://money.allwomenstalk.com/what-not-to-put-on-a-resume/)
+- [5  Things You Shouldnt do on the First Date ...](https://love.allwomenstalk.com/things-you-shouldnt-do-on-the-first-date/)
+- [Things You Should Never do when Youre Breaking up ...](https://love.allwomenstalk.com/things-you-should-never-do-when-you-re-breaking-up-with-someone/)
+- [5 Things You Should Never Say to Your Man  ...](https://love.allwomenstalk.com/things-to-never-say-to-your-man/)
 - [10 Negative Things You Should Stop Saying ...](https://lifestyle.allwomenstalk.com/negative-things-you-should-stop-saying/)
 - [13 Reasons I Dont Make New Years Resolutions ...](https://allwomenstalk.com/8-reasons-i-dont-make-new-years-resolutions/)
 

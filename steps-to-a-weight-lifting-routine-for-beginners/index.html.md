@@ -44,16 +44,16 @@ Top Photo Credit: [grafix chik](https://www.flickr.com/photos/grafixchik/3699837
 
 ## Related Posts
 
-- [7 Ways to Make the Treadmill More Fun ...](https://weightloss.allwomenstalk.com/7-ways-to-make-the-treadmill-more-fun/)
-- [exercises to do sitting down](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
-- [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)
-- [7 Fitness Techniques That Lead to Weight Gain ...](https://weightloss.allwomenstalk.com/7-fitness-techniques-that-lead-to-weight-gain/)
 - [how to choose the right gym for you](https://weightloss.allwomenstalk.com/ways-to-choose-the-right-gym-for-you/)
-- [7 Tips to Tone up Your Arms without Going to the G...](https://weightloss.allwomenstalk.com/7-tips-to-tone-up-your-arms-without-going-to-the-gym/)
 - [7 dos and Donts of Jogging ...](https://weightloss.allwomenstalk.com/dos-and-donts-of-jogging/)
-- [10 Ways to Make Exercise Fun ...](https://weightloss.allwomenstalk.com/10-ways-to-make-exercise-fun/)
-- [excersises to loose weight](https://weightloss.allwomenstalk.com/best-exercises-for-a-perfect-butt/)
+- [7 Fitness Techniques That Lead to Weight Gain ...](https://weightloss.allwomenstalk.com/7-fitness-techniques-that-lead-to-weight-gain/)
+- [7 Ways to Make the Treadmill More Fun ...](https://weightloss.allwomenstalk.com/7-ways-to-make-the-treadmill-more-fun/)
 - [9 Techniques to Make Yourself Exercise ...](https://weightloss.allwomenstalk.com/9-techniques-to-make-yourself-exercise/)
+- [exercises to do sitting down](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
+- [excersises to loose weight](https://weightloss.allwomenstalk.com/best-exercises-for-a-perfect-butt/)
+- [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)
+- [10 Ways to Make Exercise Fun ...](https://weightloss.allwomenstalk.com/10-ways-to-make-exercise-fun/)
+- [7 Tips to Tone up Your Arms without Going to the G...](https://weightloss.allwomenstalk.com/7-tips-to-tone-up-your-arms-without-going-to-the-gym/)
 - [7 Ways in Which Lifting Weights Can Help Lose Weig...](https://weightloss.allwomenstalk.com/ways-in-which-lifting-weights-can-help-lose-weight/)
 - [7 Ways to Start Lifting Weights ...](https://fitene.com/ways-to-start-lifting-weights/)
 

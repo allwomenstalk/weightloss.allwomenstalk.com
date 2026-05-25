@@ -44,14 +44,14 @@ Do you eat too much fat? It can be hard not to with all the prepared foods and r
 
 - [7 Easy Ways to Add Veggies into Your Daily Eating ...](https://food.allwomenstalk.com/easy-ways-to-add-veggies-into-your-daily-eating/)
 - [7 Tips on How to Find a Diet That is Right for You...](https://diet.allwomenstalk.com/tips-on-how-to-find-a-diet-that-is-right-for-you/)
-- [7 Ways to Shake up Your Diet for 2014 ...](https://diet.allwomenstalk.com/ways-to-shake-up-your-diet-for/)
 - [7 Ways to Avoid Falling off the Diet Wagon This Ye...](https://diet.allwomenstalk.com/ways-to-avoid-falling-off-the-diet-wagon-this-year/)
-- [7 Easy and Effective Ways to Reduce Food Waste ...](https://food.allwomenstalk.com/easy-and-effective-ways-to-reduce-food-waste/)
-- [9 Tips for Keeping a Diet Friendly Purse ...](https://diet.allwomenstalk.com/tips-for-keeping-a-diet-friendly-purse/)
-- [7 Ways to Use Nutrition to Get Better Results at t...](https://fitness.allwomenstalk.com/ways-to-use-nutrition-to-get-better-results-at-the-gym/)
 - [7 Foods You Must Cut Back on to Reduce Sugar Intak...](https://food.allwomenstalk.com/foods-you-must-cut-back-on-to-reduce-sugar-intake/)
+- [7 Ways to Shake up Your Diet for 2014 ...](https://diet.allwomenstalk.com/ways-to-shake-up-your-diet-for/)
 - [7 Tips for Sticking to Your New Years Diet after J...](https://diet.allwomenstalk.com/tips-for-sticking-to-your-new-years-diet-after-january/)
+- [9 Tips for Keeping a Diet Friendly Purse ...](https://diet.allwomenstalk.com/tips-for-keeping-a-diet-friendly-purse/)
+- [7 Easy and Effective Ways to Reduce Food Waste ...](https://food.allwomenstalk.com/easy-and-effective-ways-to-reduce-food-waste/)
 - [7 Ways to Help the Whole Family Lead a Healthier L...](https://health.allwomenstalk.com/ways-to-help-the-whole-family-lead-a-healthier-lifestyle/)
+- [7 Ways to Use Nutrition to Get Better Results at t...](https://fitness.allwomenstalk.com/ways-to-use-nutrition-to-get-better-results-at-the-gym/)
 - [7 Sneaky Ways to Cut Calories  Lose Weight ...](https://weightloss.allwomenstalk.com/7-sneaky-ways-to-cut-calories-lose-weight/)
 - [7 Inexpensive Tips to Improve Your Diet ...](https://diet.allwomenstalk.com/inexpensive-tips-to-improve-your-diet/)
 

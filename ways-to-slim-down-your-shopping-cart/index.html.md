@@ -42,16 +42,16 @@ So slim down your shopping cart by navigating the grocery store with knowledge, 
 
 ## Related Posts
 
-- [triscuit glycemic index](https://diet.allwomenstalk.com/how-to-snack-in-a-balanced-way/)
 - [alternative to calorie counting](https://weightloss.allwomenstalk.com/things-to-do-instead-of-counting-calories/)
-- [what is the messiest food to eat](https://food.allwomenstalk.com/best-ways-to-eat-messy-foods/)
+- [triscuit glycemic index](https://diet.allwomenstalk.com/how-to-snack-in-a-balanced-way/)
+- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
 - [how to control blood sugar levels with food](https://diet.allwomenstalk.com/how-to-eat-to-control-your-blood-sugar-level/)
+- [what is the messiest food to eat](https://food.allwomenstalk.com/best-ways-to-eat-messy-foods/)
 - [food prep tips](https://food.allwomenstalk.com/professional-tips-for-making-healthy-food-prep-a-breeze/)
+- [Healthy Ways to Indulge Your Sweet Tooth without B...](https://food.allwomenstalk.com/healthy-ways-to-indulge-your-sweet-tooth/)
 - [how to kick food addiction](https://diet.allwomenstalk.com/how-to-help-stop-your-junk-food-addiction/)
 - [cant resist sweets](https://diet.allwomenstalk.com/ways-to-resist-sweets/)
-- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
 - [eatright meal prep](https://food.allwomenstalk.com/meal-prep-ideas-to-help-you-eat-right-all-week-long/)
-- [Healthy Ways to Indulge Your Sweet Tooth without B...](https://food.allwomenstalk.com/healthy-ways-to-indulge-your-sweet-tooth/)
 - [10 Ways to Reduce Your Spending While Shopping ...](https://money.allwomenstalk.com/ways-to-reduce-your-spending-while-shopping/)
 - [8 Ways to Avoid Overspending at the Grocery Store ...](https://allwomenstalk.com/8-ways-to-avoid-overspending-at-the-grocery-store/)
 

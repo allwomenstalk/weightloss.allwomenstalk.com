@@ -57,14 +57,14 @@ Which of these blogs are you going to follow? Do you have any others to add to t
 
 - [The Way You Talk about Your Weight Can Help You Lo...](https://weightloss.allwomenstalk.com/the-way-you-talk-about-your-weight-can-help-you-lose-it/)
 - [Gasp You Can Be a Lazy Girl and Still Lose Weight ...](https://weightloss.allwomenstalk.com/gasp-you-can-be-a-lazy-girl-and-still-lose-weight/)
-- [Trying to Lose Weight These Are the Things about Y...](https://weightloss.allwomenstalk.com/trying-to-lose-weight-these-are-the-things-about-your-metabolism-you-should-know/)
-- [Losing Weight is Hard but They Did It: 27 before a...](https://weightloss.allwomenstalk.com/losing-weight-is-hard-but-they-did-it-before-and-after-inspos-you-must-see/)
 - [7 Hacks for Losing Weight in Every Room of Your Ho...](https://weightloss.allwomenstalk.com/hacks-for-losing-weight-in-every-room-of-your-house/)
+- [Getting Fit with Your BFF: X Tips for Losing Weigh...](https://fitness.allwomenstalk.com/getting-fit-with-your-bff-x-tips-for-losing-weight-not-friendships/)
 - [17 Simple Salad Inspos to Help You Lose Weight Qui...](https://food.allwomenstalk.com/simple-salad-inspos-to-help-you-lose-weight-quicker/)
+- [Losing Weight is Hard but They Did It: 27 before a...](https://weightloss.allwomenstalk.com/losing-weight-is-hard-but-they-did-it-before-and-after-inspos-you-must-see/)
+- [Trying to Lose Weight These Are the Things about Y...](https://weightloss.allwomenstalk.com/trying-to-lose-weight-these-are-the-things-about-your-metabolism-you-should-know/)
 - [7 Important Things to Remember when Youre Trying t...](https://weightloss.allwomenstalk.com/important-things-to-remember-when-youre-trying-to-lose-the-baby-weight/)
 - [These Super-Easy Diet Hacks Will Blow Your Mind .....](https://diet.allwomenstalk.com/these-super-easy-diet-hacks-will-blow-your-mind/)
 - [7 Kitchen Tricks That Will Make You Lose Weight .....](https://weightloss.allwomenstalk.com/kitchen-tricks-that-will-make-you-lose-weight/)
-- [Getting Fit with Your BFF: X Tips for Losing Weigh...](https://fitness.allwomenstalk.com/getting-fit-with-your-bff-x-tips-for-losing-weight-not-friendships/)
 - [7 Most Inspiring Celebrity Weight Loss Stories ...](https://weightloss.allwomenstalk.com/7-most-inspiring-celebrity-weight-loss-stories/)
 - [8 Great Blogs with Weight Watchers Recipes ...](https://weightloss.allwomenstalk.com/great-blogs-with-weight-watchers-recipes/)
 

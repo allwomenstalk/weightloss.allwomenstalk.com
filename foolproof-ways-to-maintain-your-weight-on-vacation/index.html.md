@@ -44,16 +44,16 @@ When you come home from vacation you want to feel relaxed and rejuvenated, not w
 
 ## Related Posts
 
-- [does walking with weights burn more calories](https://weightloss.allwomenstalk.com/how-to-burn-more-calories-on-your-walks/)
-- [best snacks for weight loss](https://food.allwomenstalk.com/healthy-snacks-sure-to-fuel-your-weight-loss/)
-- [loose weight book](https://books.allwomenstalk.com/inspiring-weight-loss-books-to-get-you-well-inspired/)
-- [fab 50 workouts](https://weightloss.allwomenstalk.com/everyday-activities-that-can-aid-in-your-weightloss-by-50/)
-- [dragon fruit to lose weight](https://weightloss.allwomenstalk.com/fruits-you-should-be-eating-that-aid-in-weight-loss/)
-- [weight loss excercises](https://fitness.allwomenstalk.com/weight-loss-tips-you-should-follow-for-life/)
 - [rewards for weight loss](https://weightloss.allwomenstalk.com/youve-done-it-now-check-out-these-non-food-rewards-to-celebrate-weight-loss-milestones/)
-- [belly bust up](https://fitness.allwomenstalk.com/how-to-bust-that-gut-to-gain-confidence-back/)
+- [fab 50 workouts](https://weightloss.allwomenstalk.com/everyday-activities-that-can-aid-in-your-weightloss-by-50/)
+- [weight loss excercises](https://fitness.allwomenstalk.com/weight-loss-tips-you-should-follow-for-life/)
+- [best snacks for weight loss](https://food.allwomenstalk.com/healthy-snacks-sure-to-fuel-your-weight-loss/)
+- [does walking with weights burn more calories](https://weightloss.allwomenstalk.com/how-to-burn-more-calories-on-your-walks/)
+- [loose weight book](https://books.allwomenstalk.com/inspiring-weight-loss-books-to-get-you-well-inspired/)
 - [celebrity weight loss secrets revealed](https://weightloss.allwomenstalk.com/weight-loss-secrets-that-celebs-swear-by/)
 - [couch crunches](https://weightloss.allwomenstalk.com/how-to-lose-weight-without-leaving-the-couch/)
+- [dragon fruit to lose weight](https://weightloss.allwomenstalk.com/fruits-you-should-be-eating-that-aid-in-weight-loss/)
+- [belly bust up](https://fitness.allwomenstalk.com/how-to-bust-that-gut-to-gain-confidence-back/)
 - [7 Ways to Avoid Summer Weight Gain ...](https://weightloss.allwomenstalk.com/ways-to-avoid-summer-weight-gain/)
 - [10 Ways Not to Gain Weight during the Holiday Seas...](https://allwomenstalk.com/10-ways-not-to-gain-weight-during-the-holiday-season/)
 

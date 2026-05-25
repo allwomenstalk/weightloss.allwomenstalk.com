@@ -42,16 +42,16 @@ With these steps to help you lose weight, it is time to get up, get moving and m
 
 ## Related Posts
 
-- [how to help a friend lose weight](https://weightloss.allwomenstalk.com/ways-to-support-a-friend-whos-trying-to-lose-weight/)
-- [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
-- [berry smoothies for weight loss](https://food.allwomenstalk.com/berries-for-weight-loss-that-work-like-magic/)
-- [80 20 rule losing weight](https://weightloss.allwomenstalk.com/wonderful-weight-loss-infographics-to-help-you-achieve-your-goals/)
-- [funny responses to have you lost weight](https://funny.allwomenstalk.com/clever-replies-for-when-someone-comments-on-your-weight/)
-- [dita von teese exercise](https://fitness.allwomenstalk.com/exercises-to-drop-a-dresssize/)
-- [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
-- [workouts to lose 10 pounds in a month](https://fitness.allwomenstalk.com/workouts-to-help-you-lose-10-pounds-in-30-days/)
-- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
 - [healthy condiments for weight loss](https://food.allwomenstalk.com/condiment-swaps-that-can-help-you-lose-weight/)
+- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
+- [workouts to lose 10 pounds in a month](https://fitness.allwomenstalk.com/workouts-to-help-you-lose-10-pounds-in-30-days/)
+- [how to help a friend lose weight](https://weightloss.allwomenstalk.com/ways-to-support-a-friend-whos-trying-to-lose-weight/)
+- [dita von teese exercise](https://fitness.allwomenstalk.com/exercises-to-drop-a-dresssize/)
+- [funny responses to have you lost weight](https://funny.allwomenstalk.com/clever-replies-for-when-someone-comments-on-your-weight/)
+- [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
+- [80 20 rule losing weight](https://weightloss.allwomenstalk.com/wonderful-weight-loss-infographics-to-help-you-achieve-your-goals/)
+- [berry smoothies for weight loss](https://food.allwomenstalk.com/berries-for-weight-loss-that-work-like-magic/)
+- [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
 - [7 Ways to Drop 5 Pounds This Week ...](https://weightloss.allwomenstalk.com/7-ways-to-drop-5-pounds-this-week/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 

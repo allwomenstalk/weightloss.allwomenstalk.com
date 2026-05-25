@@ -144,16 +144,16 @@ These are just a few of the great infographics for weight loss that will help yo
 
 ## Related Posts
 
-- [how to stop eating to lose weight](https://weightloss.allwomenstalk.com/the-key-to-losing-weight-how-to-stop-eating-when-youre-full/)
 - [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
+- [superfoods to burn belly fat](https://food.allwomenstalk.com/superfoods-and-why-they-help-you-lose-weight/)
+- [35 pounds of fat look like](https://weightloss.allwomenstalk.com/want-to-lose-pounds-fast-these-35-infographics-will-help/)
 - [dita von teese exercise](https://fitness.allwomenstalk.com/exercises-to-drop-a-dresssize/)
 - [workouts to lose 10 pounds in a month](https://fitness.allwomenstalk.com/workouts-to-help-you-lose-10-pounds-in-30-days/)
-- [food journal apps](https://apps.allwomenstalk.com/if-you-want-to-lose-weight-you-need-these-food-journal-apps-in-your-life/)
-- [35 pounds of fat look like](https://weightloss.allwomenstalk.com/want-to-lose-pounds-fast-these-35-infographics-will-help/)
-- [fridge quotes](https://weightloss.allwomenstalk.com/want-to-lose-weight-inspiring-quotes-to-hang-on-your-fridge/)
 - [how to help a friend lose weight](https://weightloss.allwomenstalk.com/ways-to-support-a-friend-whos-trying-to-lose-weight/)
 - [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
-- [superfoods to burn belly fat](https://food.allwomenstalk.com/superfoods-and-why-they-help-you-lose-weight/)
+- [fridge quotes](https://weightloss.allwomenstalk.com/want-to-lose-weight-inspiring-quotes-to-hang-on-your-fridge/)
+- [how to stop eating to lose weight](https://weightloss.allwomenstalk.com/the-key-to-losing-weight-how-to-stop-eating-when-youre-full/)
+- [food journal apps](https://apps.allwomenstalk.com/if-you-want-to-lose-weight-you-need-these-food-journal-apps-in-your-life/)
 - [10 Essential Tips for a Healthy Weight Loss ...](https://diet.allwomenstalk.com/essential-tips-for-a-healthy-weight-loss/)
 - [23 Healthy Ways to Lose Weight ...](https://allwomenstalk.com/losing-weight-the-healthy-way/)
 

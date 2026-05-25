@@ -56,16 +56,16 @@ Photo via the [Hey Gorgeous Blog](https://web.archive.org/web/http://www.heygorg
 
 ## Related Posts
 
-- [abs in female](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
-- [10 Benefits of a Fitness Boot Camp ...](https://fitene.com/benefits-of-a-fitness-boot-camp/)
 - [7 Things Youll Need for the P90X Workout ...](https://weightloss.allwomenstalk.com/things-youll-need-for-the-p90x-workout/)
 - [slim your arms](https://weightloss.allwomenstalk.com/exercises-for-slimming-your-arms/)
 - [calorie burn dancing](https://weightloss.allwomenstalk.com/best-calorie-burning-dance-moves/)
-- [8 Ways to Exercise despite the Heat ...](https://weightloss.allwomenstalk.com/ways-to-exercise-despite-the-heat/)
 - [exercise for moms](https://parenting.allwomenstalk.com/7-fun-ways-a-busy-mom-can-exercise/)
-- [8 Surprisingly Effective Fitness Fads You Have to ...](https://health.allwomenstalk.com/surprisingly-effective-fitness-fads-you-have-to-try/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
+- [abs in female](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
 - [8 Exercises for Morning Workout Routine  Are You D...](https://weightloss.allwomenstalk.com/exercises-for-morning-workout-routine-are-you-doing-them-right/)
+- [10 Benefits of a Fitness Boot Camp ...](https://fitene.com/benefits-of-a-fitness-boot-camp/)
+- [8 Ways to Exercise despite the Heat ...](https://weightloss.allwomenstalk.com/ways-to-exercise-despite-the-heat/)
+- [8 Surprisingly Effective Fitness Fads You Have to ...](https://health.allwomenstalk.com/surprisingly-effective-fitness-fads-you-have-to-try/)
 - [10 Ways to Burn Belly Fat ...](https://weightloss.allwomenstalk.com/ways-to-burn-belly-fat/)
 - [10 Ways to Burn More Calories during the Day ...](https://allwomenstalk.com/10-ways-to-burn-more-calories-during-the-day/)
 

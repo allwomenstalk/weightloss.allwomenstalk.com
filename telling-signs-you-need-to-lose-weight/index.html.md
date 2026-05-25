@@ -66,16 +66,16 @@ If you’ve read this list, and three or more of these points sound very, painfu
 
 ## Related Posts
 
-- [can mascara give you a headache](https://beauty.allwomenstalk.com/telling-signs-your-makeup-is-making-you-sick/)
-- [taking a break from.facebook](https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/)
-- [make up signs](https://makeup.allwomenstalk.com/telling-signs-you-could-be-addicted-to-makeup/)
-- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
-- [how to act like a boy](https://love.allwomenstalk.com/signs-youre-acting-like-a-crazy-girl/)
-- [im too much for you](https://love.allwomenstalk.com/signs-you-are-reading-too-much-into-things/)
-- [5 symptoms of workplace bullying](https://lifestyle.allwomenstalk.com/telltale-signs-of-a-bully-boss/)
-- [is my boyfriend pulling away](https://love.allwomenstalk.com/signs-you-are-pulling-away/)
-- [being too picky](https://love.allwomenstalk.com/signs-you-are-being-too-picky/)
 - [how to know if you need help](https://health.allwomenstalk.com/telling-signs-your-friend-needs-help/)
+- [being too picky](https://love.allwomenstalk.com/signs-you-are-being-too-picky/)
+- [can mascara give you a headache](https://beauty.allwomenstalk.com/telling-signs-your-makeup-is-making-you-sick/)
+- [how to act like a boy](https://love.allwomenstalk.com/signs-youre-acting-like-a-crazy-girl/)
+- [make up signs](https://makeup.allwomenstalk.com/telling-signs-you-could-be-addicted-to-makeup/)
+- [5 symptoms of workplace bullying](https://lifestyle.allwomenstalk.com/telltale-signs-of-a-bully-boss/)
+- [taking a break from.facebook](https://health.allwomenstalk.com/signs-that-you-should-take-a-break-from-facebook/)
+- [im too much for you](https://love.allwomenstalk.com/signs-you-are-reading-too-much-into-things/)
+- [am i spending too much money](https://money.allwomenstalk.com/indications-that-you-are-spending-too-much-money/)
+- [is my boyfriend pulling away](https://love.allwomenstalk.com/signs-you-are-pulling-away/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 - [13 Signs Your Diet Isnt Working ...](https://allwomenstalk.com/13-signs-your-diet-isnt-working/)
 

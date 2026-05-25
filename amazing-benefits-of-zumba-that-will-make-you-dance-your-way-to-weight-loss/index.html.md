@@ -76,16 +76,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [eating sandwiches to lose weight](https://food.allwomenstalk.com/healthy-and-easy-sandwiches-for-weight-loss/)
-- [burning 400 calories a day is good](https://fitness.allwomenstalk.com/easy-ways-to-burn-400-calories/)
-- [best seeds to lose weight](https://weightloss.allwomenstalk.com/powerful-seeds-to-eat-that-can-help-you-lose-weight/)
 - [expedite foods](https://weightloss.allwomenstalk.com/super-foods-to-expedite-weight-loss/)
-- [what herbs help you lose weight](https://weightloss.allwomenstalk.com/herbs-that-might-help-you-lose-the-weight-faster/)
-- [how to chia seeds for weight loss](https://food.allwomenstalk.com/nutrients-in-chia-seeds-that-can-help-you-lose-weight-and-look-great/)
+- [eating sandwiches to lose weight](https://food.allwomenstalk.com/healthy-and-easy-sandwiches-for-weight-loss/)
 - [metabolism fast tips](https://diet.allwomenstalk.com/tips-to-remember-from-the-fast-metabolism-diet/)
-- [combos food](https://food.allwomenstalk.com/winning-breakfast-combos-that-will-fuel-your-day-and-help-you-drop-those-unwanted-pounds/)
-- [how can kids lose weight](https://weightloss.allwomenstalk.com/ways-your-kids-can-help-you-lose-weight/)
+- [burning 400 calories a day is good](https://fitness.allwomenstalk.com/easy-ways-to-burn-400-calories/)
 - [fat burning lemonade: 32 oz. water fresh squeezed ...](https://food.allwomenstalk.com/green-recipes-that-will-slim-you-down-in-no-time-and-help-you-look-fabulous/)
+- [combos food](https://food.allwomenstalk.com/winning-breakfast-combos-that-will-fuel-your-day-and-help-you-drop-those-unwanted-pounds/)
+- [best seeds to lose weight](https://weightloss.allwomenstalk.com/powerful-seeds-to-eat-that-can-help-you-lose-weight/)
+- [what herbs help you lose weight](https://weightloss.allwomenstalk.com/herbs-that-might-help-you-lose-the-weight-faster/)
+- [how can kids lose weight](https://weightloss.allwomenstalk.com/ways-your-kids-can-help-you-lose-weight/)
+- [how to chia seeds for weight loss](https://food.allwomenstalk.com/nutrients-in-chia-seeds-that-can-help-you-lose-weight-and-look-great/)
 - [8 Kinds of Dance That Help You Lose Weight ...](https://weightloss.allwomenstalk.com/kinds-of-dance-that-help-you-lose-weight/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 

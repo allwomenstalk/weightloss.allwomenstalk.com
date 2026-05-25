@@ -44,15 +44,15 @@ Top image source: [nmlifestylemag.com](http://nmlifestylemag.com/2012/03/weight-
 
 ## Related Posts
 
-- [7 Reasons Water Helps Kick Start Weight Loss ...](https://weightloss.allwomenstalk.com/reasons-water-helps-kick-start-weight-loss/)
-- [8 Must-Know Weight Loss Rules for the Holiday Seas...](https://diet.allwomenstalk.com/must-know-weight-loss-rules-for-the-holiday-season/)
-- [motivational quotes losing weight](https://weightloss.allwomenstalk.com/top-motivational-quotes-for-losing-weight/)
+- [9 Veggies That Aid in Weight Loss ...](https://weightloss.allwomenstalk.com/veggies-that-aid-in-weight-loss/)
 - [7 Ways Jogging Helps Lose Weight ...](https://weightloss.allwomenstalk.com/ways-jogging-helps-lose-weight/)
 - [8 Awesome Ways to Lose a Couple Pounds Fast ...](https://weightloss.allwomenstalk.com/awesome-ways-to-lose-a-couple-pounds-fast/)
-- [Top 10 Weight Loss Friendly Foods ...](https://weightloss.allwomenstalk.com/top-weight-loss-friendly-foods/)
-- [8 Weight Loss Tips You Need to Know to Stay Motiva...](https://weightloss.allwomenstalk.com/weight-loss-tips-you-need-to-know-to-stay-motivated/)
+- [motivational quotes losing weight](https://weightloss.allwomenstalk.com/top-motivational-quotes-for-losing-weight/)
 - [8 Ways to Keep from Gaining Extra Weight ...](https://health.allwomenstalk.com/ways-to-keep-from-gaining-extra-weight/)
-- [9 Veggies That Aid in Weight Loss ...](https://weightloss.allwomenstalk.com/veggies-that-aid-in-weight-loss/)
+- [7 Reasons Water Helps Kick Start Weight Loss ...](https://weightloss.allwomenstalk.com/reasons-water-helps-kick-start-weight-loss/)
+- [8 Weight Loss Tips You Need to Know to Stay Motiva...](https://weightloss.allwomenstalk.com/weight-loss-tips-you-need-to-know-to-stay-motivated/)
+- [Top 10 Weight Loss Friendly Foods ...](https://weightloss.allwomenstalk.com/top-weight-loss-friendly-foods/)
+- [8 Must-Know Weight Loss Rules for the Holiday Seas...](https://diet.allwomenstalk.com/must-know-weight-loss-rules-for-the-holiday-season/)
 - [7 Best Foods to Get Rid of That Belly Fat ...](https://weightloss.allwomenstalk.com/best-foods-to-get-rid-of-that-belly-fat/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 - [7 Best Ways to Control Your Weight ...](https://allwomenstalk.com/7-best-ways-to-control-your-weight/)

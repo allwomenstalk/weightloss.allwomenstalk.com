@@ -42,16 +42,16 @@ These are 7 blatant lies we tell ourselves about dieting. Which ones have you fa
 
 ## Related Posts
 
-- [You Will Not Believe What Trans Fats Are Doing to ...](https://diet.allwomenstalk.com/you-will-not-believe-what-trans-fats-are-doing-to-your-body/)
-- [Hard-Hitting Reasons for Giving up Soda for Girls ...](https://health.allwomenstalk.com/and-this-is-why-they-gave-up-diet-soda/)
-- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
-- [Why Are You Always so Hungry](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
-- [Are You Eating More than You Realize](https://weightloss.allwomenstalk.com/are-you-eating-more-than-you-realize/)
 - [7 Major Reasons Your Smoothies Arent Working  ...](https://weightloss.allwomenstalk.com/why-your-smoothies-arent-helping-you-lose-weight/)
-- [Shocking This is Why We Weigh More than People 50 ...](https://health.allwomenstalk.com/why-do-people-weigh-more-now-than-years-ago/)
-- [Nobody Tells You These 7 Things about Weight Loss ...](https://weightloss.allwomenstalk.com/nobody-tells-you-these-things-about-weight-loss/)
+- [Are You Eating More than You Realize](https://weightloss.allwomenstalk.com/are-you-eating-more-than-you-realize/)
 - [Dont Lose Weight if These Apply to You](https://weightloss.allwomenstalk.com/you-do-not-need-to-lose-weight-if-these-are-true-for-you/)
+- [Shocking This is Why We Weigh More than People 50 ...](https://health.allwomenstalk.com/why-do-people-weigh-more-now-than-years-ago/)
+- [You Will Not Believe What Trans Fats Are Doing to ...](https://diet.allwomenstalk.com/you-will-not-believe-what-trans-fats-are-doing-to-your-body/)
+- [Nobody Tells You These 7 Things about Weight Loss ...](https://weightloss.allwomenstalk.com/nobody-tells-you-these-things-about-weight-loss/)
 - [hand diet](https://weightloss.allwomenstalk.com/what-should-you-know-about-the-hand-diet/)
+- [Why Are You Always so Hungry](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
+- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
+- [Hard-Hitting Reasons for Giving up Soda for Girls ...](https://health.allwomenstalk.com/and-this-is-why-they-gave-up-diet-soda/)
 - [7 Crazy Myths about Weight Loss ...](https://weightloss.allwomenstalk.com/crazy-myths-about-weight-loss/)
 - [7 Faux-Pas for Dieters to Avoid ...](https://diet.allwomenstalk.com/faux-pas-for-dieters-to-avoid/)
 

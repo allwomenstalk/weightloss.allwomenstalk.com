@@ -198,14 +198,14 @@ Which one looks like your new favorite? What other weight loss tips can you add?
 
 ## Related Posts
 
-- [600 calorie burn workout](https://fitness.allwomenstalk.com/shed-unwanted-pounds-with-these-calorie-burning-workouts/)
-- [can you lose weight by eating beans](https://weightloss.allwomenstalk.com/why-you-should-eat-beans-to-lose-weight/)
-- [funny paintball gif](https://weightloss.allwomenstalk.com/crazy-weight-loss-fads-from-around-the-world/)
-- [porangaba tea](https://weightloss.allwomenstalk.com/these-teas-will-boost-your-weight-loss-effort/)
-- [orzo rice](https://food.allwomenstalk.com/foods-thatll-help-you-lose-the-weight-you-want-gone/)
-- [weighing yourself at night](https://weightloss.allwomenstalk.com/the-cardinal-rules-of-weighing-yourself/)
 - [low calorie swaps](https://weightloss.allwomenstalk.com/simple-calorie-swaps-thatll-lead-to-weight-loss/)
+- [orzo rice](https://food.allwomenstalk.com/foods-thatll-help-you-lose-the-weight-you-want-gone/)
+- [600 calorie burn workout](https://fitness.allwomenstalk.com/shed-unwanted-pounds-with-these-calorie-burning-workouts/)
+- [funny paintball gif](https://weightloss.allwomenstalk.com/crazy-weight-loss-fads-from-around-the-world/)
+- [can you lose weight by eating beans](https://weightloss.allwomenstalk.com/why-you-should-eat-beans-to-lose-weight/)
+- [porangaba tea](https://weightloss.allwomenstalk.com/these-teas-will-boost-your-weight-loss-effort/)
 - [cutting 500 calories a day](https://weightloss.allwomenstalk.com/how-to-cut-calories-a-day/)
+- [weighing yourself at night](https://weightloss.allwomenstalk.com/the-cardinal-rules-of-weighing-yourself/)
 - [cheapest ingredients](https://weightloss.allwomenstalk.com/the-cheapest-ingredients-thatll-help-you-lose-weight/)
 - [cameron diaz weight loss diet](https://weightloss.allwomenstalk.com/slim-like-a-star-the-best-celebrity-diet-books/)
 - [10 Healthy Salads for a Successful Weight Loss ...](https://diet.allwomenstalk.com/healthy-salads-for-a-successful-weight-loss/)

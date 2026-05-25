@@ -135,16 +135,16 @@ Which one looks like your new happy hour fave?
 
 ## Related Posts
 
-- [coffee hacks](https://food.allwomenstalk.com/coffee-hacks-every-morning-junkie-needs/)
-- [Tea Recipes for Girls Who Want to Detox ...](https://health.allwomenstalk.com/tea-recipes-for-girls-who-want-to-detox/)
-- [Girls Who Love Coconut Water Will Adore These Reci...](https://food.allwomenstalk.com/girls-who-love-coconut-water-will-adore-these-recipes/)
-- [refreshed drink](https://lifestyle.allwomenstalk.com/fabulous-drink-recipes-that-will-keep-you-refreshed-throughout-the-summer/)
-- [Drink Your Way to Health with These Delicious Infu...](https://health.allwomenstalk.com/drink-your-way-to-health-with-these-delicious-infused-waters/)
 - [Holiday Mocktails for Girls Who Dont Drink Alcohol...](https://food.allwomenstalk.com/holiday-mocktails-for-girls-who-dont-drink-alcohol/)
-- [Awesome Ways to Increase Your Water Intake for Gir...](https://health.allwomenstalk.com/ways-to-increase-your-water-intake/)
-- [Summer Was Made for These 7 Boozy Drinks ...](https://food.allwomenstalk.com/summer-was-made-for-these-boozy-drinks/)
-- [Yummy Drinks That Will Also Boost Your Metabolism ...](https://food.allwomenstalk.com/yummy-drinks-that-will-also-boost-your-metabolism-for-a-healthier-you/)
 - [The Starbucks Holiday Cups Are Officially Here and...](https://food.allwomenstalk.com/the-starbucks-holiday-cups-are-officially-here-and-there-are-of-them/)
+- [Summer Was Made for These 7 Boozy Drinks ...](https://food.allwomenstalk.com/summer-was-made-for-these-boozy-drinks/)
+- [Drink Your Way to Health with These Delicious Infu...](https://health.allwomenstalk.com/drink-your-way-to-health-with-these-delicious-infused-waters/)
+- [Girls Who Love Coconut Water Will Adore These Reci...](https://food.allwomenstalk.com/girls-who-love-coconut-water-will-adore-these-recipes/)
+- [Awesome Ways to Increase Your Water Intake for Gir...](https://health.allwomenstalk.com/ways-to-increase-your-water-intake/)
+- [refreshed drink](https://lifestyle.allwomenstalk.com/fabulous-drink-recipes-that-will-keep-you-refreshed-throughout-the-summer/)
+- [Tea Recipes for Girls Who Want to Detox ...](https://health.allwomenstalk.com/tea-recipes-for-girls-who-want-to-detox/)
+- [coffee hacks](https://food.allwomenstalk.com/coffee-hacks-every-morning-junkie-needs/)
+- [Yummy Drinks That Will Also Boost Your Metabolism ...](https://food.allwomenstalk.com/yummy-drinks-that-will-also-boost-your-metabolism-for-a-healthier-you/)
 - [20 Best Weight Loss Drinks to Try ...](https://weightloss.allwomenstalk.com/best-weight-loss-drinks-to-try/)
 - [8 Delicious Drinks That Aid in Weight Loss ...](https://weightloss.allwomenstalk.com/delicious-drinks-that-aid-in-weight-loss/)
 

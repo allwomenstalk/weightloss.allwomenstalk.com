@@ -48,16 +48,16 @@ Top Photo Credit: [fourpointspr](https://www.flickr.com/photos/fourpointspr/6007
 
 ## Related Posts
 
-- [how to mentally prepare to lose weight](https://weightloss.allwomenstalk.com/ways-to-mentally-prepare-yourself-to-lose-weight/)
-- [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
-- [7 Things to do before Starting Your Weight Loss Jo...](https://weightloss.allwomenstalk.com/things-to-do-before-starting-your-weight-loss-journey/)
 - [7 Effective Ways to Lose 5 Pounds Quickly ...](https://weightloss.allwomenstalk.com/effective-ways-to-lose-5-pounds-quickly/)
-- [how to use the elliptical to lose weight](https://weightloss.allwomenstalk.com/how-to-use-the-elliptical-burner-to-lose-weight-7-different-ways/)
+- [watermelon smoothie for weight loss](https://weightloss.allwomenstalk.com/smoothies-that-aid-in-weight-loss/)
 - [bff fries weight](https://weightloss.allwomenstalk.com/ways-to-start-losing-weight-at-work/)
+- [7 Weight Loss Myths You Should Know about to Stop ...](https://weightloss.allwomenstalk.com/weight-loss-myths-you-should-know-about-to-stop-doubting-and-start-losing-that-weight/)
+- [how to use the elliptical to lose weight](https://weightloss.allwomenstalk.com/how-to-use-the-elliptical-burner-to-lose-weight-7-different-ways/)
+- [how to mentally prepare to lose weight](https://weightloss.allwomenstalk.com/ways-to-mentally-prepare-yourself-to-lose-weight/)
 - [step aerobics for weight loss](https://weightloss.allwomenstalk.com/ways-to-lose-weight-with-step-aerobics/)
 - [does skateboarding burn belly fat](https://weightloss.allwomenstalk.com/tips-on-how-to-lose-weight-fast-for-teenage-girls/)
-- [7 Weight Loss Myths You Should Know about to Stop ...](https://weightloss.allwomenstalk.com/weight-loss-myths-you-should-know-about-to-stop-doubting-and-start-losing-that-weight/)
-- [watermelon smoothie for weight loss](https://weightloss.allwomenstalk.com/smoothies-that-aid-in-weight-loss/)
+- [7 Things to do before Starting Your Weight Loss Jo...](https://weightloss.allwomenstalk.com/things-to-do-before-starting-your-weight-loss-journey/)
+- [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 - [8 Dieting Tips for Winter ...](https://diet.allwomenstalk.com/dieting-tips-for-winter/)
 - [10 Essential Tips for a Healthy Weight Loss ...](https://diet.allwomenstalk.com/essential-tips-for-a-healthy-weight-loss/)
 

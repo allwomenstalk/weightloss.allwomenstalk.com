@@ -50,16 +50,16 @@ You don't have to beat yourself up when you can't get to the gym or don't have t
 
 ## Related Posts
 
-- [how to make stomach tight](https://weightloss.allwomenstalk.com/ways-to-get-a-tight-stomach/)
-- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
-- [advice for gym beginners](https://weightloss.allwomenstalk.com/fitness-tips-for-beginners/)
 - [sitting on an exercise ball while watching tv](https://weightloss.allwomenstalk.com/ways-to-exercise-while-watching-tv/)
-- [exercises to tone thighs](https://weightloss.allwomenstalk.com/exercises-to-tone-your-thighs/)
 - [workout tv show](https://weightloss.allwomenstalk.com/fun-tv-show-workout-routines/)
 - [couch exercises to lose belly fat](https://weightloss.allwomenstalk.com/workouts-you-can-do-on-your-couch/)
-- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
-- [things to do while commuting](https://weightloss.allwomenstalk.com/ways-to-exercise-while-commuting/)
 - [best cellulite exercise](https://health.allwomenstalk.com/best-cellulite-butt-workout-moves/)
+- [exercises to tone thighs](https://weightloss.allwomenstalk.com/exercises-to-tone-your-thighs/)
+- [how to make stomach tight](https://weightloss.allwomenstalk.com/ways-to-get-a-tight-stomach/)
+- [things to do while commuting](https://weightloss.allwomenstalk.com/ways-to-exercise-while-commuting/)
+- [advice for gym beginners](https://weightloss.allwomenstalk.com/fitness-tips-for-beginners/)
+- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
+- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [10 Ways to Burn Calories when at Work ...](https://weightloss.allwomenstalk.com/ways-to-burn-calories-when-at-work/)
 

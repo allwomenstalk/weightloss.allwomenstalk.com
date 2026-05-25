@@ -42,16 +42,16 @@ Set aside time for yourself and prepare your meals. Base a meal plan around your
 
 ## Related Posts
 
-- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
-- [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
-- [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
 - [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
-- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
 - [just eat healthy](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)
-- [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
-- [smoothies bad for weight loss](https://food.allwomenstalk.com/things-to-never-put-in-your-green-smoothie-for-weight-loss/)
-- [why dieting doesnt work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
 - [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
+- [smoothies bad for weight loss](https://food.allwomenstalk.com/things-to-never-put-in-your-green-smoothie-for-weight-loss/)
+- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
+- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
+- [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
+- [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
+- [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
+- [why dieting doesnt work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
 - [10 Surprising Foods That Help with Weight Loss ...](https://weightloss.allwomenstalk.com/surprising-foods-that-help-with-weight-loss/)
 - [8 Healthy Foods for a Successful Weight Loss ...](https://diet.allwomenstalk.com/healthy-foods-for-a-successful-weight-loss/)
 

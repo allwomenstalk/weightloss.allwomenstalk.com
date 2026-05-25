@@ -60,16 +60,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
 - [smoothies bad for weight loss](https://food.allwomenstalk.com/things-to-never-put-in-your-green-smoothie-for-weight-loss/)
-- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
-- [just eat healthy](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)
-- [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
-- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
+- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
 - [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
-- [why dieting doesnt work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
-- [preparing food in advance](https://weightloss.allwomenstalk.com/reasons-why-preparing-meals-in-advance-is-effective-for-weight-loss/)
 - [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
+- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
+- [just eat healthy](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)
+- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
+- [preparing food in advance](https://weightloss.allwomenstalk.com/reasons-why-preparing-meals-in-advance-is-effective-for-weight-loss/)
+- [why dieting doesnt work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
+- [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
 - [7 Unfortunate Reasons Why Women Gain Weight Fast ....](https://weightloss.allwomenstalk.com/7-reasons-women-gain-weight-fast/)
 - [10 Reasons Why You Are Not Losing Weight ...](https://weightloss.allwomenstalk.com/reasons-why-you-are-not-losing-weight/)
 

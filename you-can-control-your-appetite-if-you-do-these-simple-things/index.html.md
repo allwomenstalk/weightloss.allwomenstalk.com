@@ -42,16 +42,16 @@ The great side effects of controlling your appetite include easier weight loss a
 
 ## Related Posts
 
-- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
-- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
-- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
-- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
-- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
 - [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
-- [How to Make the Switch to Whole Grains for a Bette...](https://diet.allwomenstalk.com/how-to-make-the-switch-to-whole-grains-for-a-better-body/)
-- [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
 - [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
 - [7 Ways to Reverse Bad Diet Decisions ...](https://weightloss.allwomenstalk.com/ways-to-reverse-bad-diet-decisions/)
+- [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
+- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
+- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
+- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
+- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
+- [How to Make the Switch to Whole Grains for a Bette...](https://diet.allwomenstalk.com/how-to-make-the-switch-to-whole-grains-for-a-better-body/)
+- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [15 Tips on How to Control Your Weight ...](https://allwomenstalk.com/15-tips-on-how-to-control-your-weight/)
 

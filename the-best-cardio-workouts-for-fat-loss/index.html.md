@@ -34,14 +34,14 @@ Rowing is another amazing cardio workout that pretty much affects every inch of 
 
 - [7 Reasons Why Your Workout Isnt Working out ...](https://fitness.allwomenstalk.com/reasons-why-your-workout-isnt-working-out/)
 - [How to Go Jogging with Your Dog ...](https://running.allwomenstalk.com/how-to-go-jogging-with-your-dog/)
-- [7 Awesome Ways to Get Exercise into Your Everyday ...](https://fitness.allwomenstalk.com/awesome-ways-to-get-exercise-into-your-everyday-routine/)
 - [How to Reignite Your Love for Working out ...](https://fitness.allwomenstalk.com/how-to-reignite-your-love-for-working-out/)
-- [How  Can a Rower Help Your Exercise Routine](https://fitness.allwomenstalk.com/how-can-a-rower-help-your-exercise-routine/)
-- [5 Ways to Gauge How Fit You Are ...](https://fitness.allwomenstalk.com/ways-to-gauge-how-fit-you-are/)
 - [30 Inspiring Ways to Move More and Burn More Calor...](https://fitness.allwomenstalk.com/inspiring-ways-to-move-more-and-burn-more-calories-every-day/)
-- [HIIT for Beginners Who Want to Burn Calories Fast ...](https://fitness.allwomenstalk.com/hiit-for-beginners-who-want-to-burn-calories-fast/)
 - [How to Write and Follow an Exercise Timetable ...](https://fitness.allwomenstalk.com/how-to-write-and-follow-an-exercise-timetable/)
+- [5 Ways to Gauge How Fit You Are ...](https://fitness.allwomenstalk.com/ways-to-gauge-how-fit-you-are/)
+- [7 Awesome Ways to Get Exercise into Your Everyday ...](https://fitness.allwomenstalk.com/awesome-ways-to-get-exercise-into-your-everyday-routine/)
 - [5 Exercises for Your Eyes ...](https://health.allwomenstalk.com/exercises-for-your-eyes/)
+- [How  Can a Rower Help Your Exercise Routine](https://fitness.allwomenstalk.com/how-can-a-rower-help-your-exercise-routine/)
+- [HIIT for Beginners Who Want to Burn Calories Fast ...](https://fitness.allwomenstalk.com/hiit-for-beginners-who-want-to-burn-calories-fast/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 - [Lose Belly Fat ...](https://allwomenstalk.com/lose-belly-fat/)
 

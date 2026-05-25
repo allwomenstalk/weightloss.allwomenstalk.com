@@ -42,15 +42,15 @@ These tips to help you to stick to a healthy eating plan can change your life if
 
 ## Related Posts
 
+- [eat body](https://diet.allwomenstalk.com/ways-to-eat-for-the-body-you-want/)
+- [can allergies make you gain weight](https://health.allwomenstalk.com/healthy-ways-to-gain-weight-if-you-have-food-allergies/)
 - [how to sneak veggies into meals for picky eaters](https://food.allwomenstalk.com/ways-to-sneak-veggies-into-your-picky-eaters-meals/)
 - [orthorexia recovery](https://health.allwomenstalk.com/tips-for-overcoming-orthorexia/)
-- [healthy food app](https://diet.allwomenstalk.com/apps-for-healthy-eating/)
-- [eating out too much](https://lifestyle.allwomenstalk.com/fail-safe-ways-to-keep-from-overeating-at-restaurants/)
-- [eating healthy while traveling](https://travel.allwomenstalk.com/helpful-tips-on-eating-healthy-while-traveling/)
-- [can allergies make you gain weight](https://health.allwomenstalk.com/healthy-ways-to-gain-weight-if-you-have-food-allergies/)
-- [nutrition savvy](https://health.allwomenstalk.com/ways-to-become-nutrition-savvy/)
-- [eat body](https://diet.allwomenstalk.com/ways-to-eat-for-the-body-you-want/)
 - [binge starve cycle](https://diet.allwomenstalk.com/tips-on-how-to-talk-yourself-out-of-binge-eating/)
+- [healthy food app](https://diet.allwomenstalk.com/apps-for-healthy-eating/)
+- [nutrition savvy](https://health.allwomenstalk.com/ways-to-become-nutrition-savvy/)
+- [eating healthy while traveling](https://travel.allwomenstalk.com/helpful-tips-on-eating-healthy-while-traveling/)
+- [eating out too much](https://lifestyle.allwomenstalk.com/fail-safe-ways-to-keep-from-overeating-at-restaurants/)
 - [discouraged weight loss](https://diet.allwomenstalk.com/ways-to-not-get-discouraged-when-dieting/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 - [7 Tips to Eating a More Heart-Healthy Diet ...](https://allwomenstalk.com/7-tips-to-eating-a-more-heart-healthy-diet/)

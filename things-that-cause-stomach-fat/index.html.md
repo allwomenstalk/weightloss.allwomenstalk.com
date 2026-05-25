@@ -48,16 +48,16 @@ Top Photo Credit: [realandrews3](https://www.flickr.com/photos/realandrews3/4204
 
 ## Related Posts
 
-- [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
-- [diet cheating](https://diet.allwomenstalk.com/times-when-its-ok-to-cheat-on-your-diet/)
-- [8 Destructive Dieting Habits ...](https://diet.allwomenstalk.com/destructive-dieting-habits/)
-- [diet no](https://diet.allwomenstalk.com/definite-diet-no-nos/)
 - [10 Foods to Avoid While Dieting ...](https://diet.allwomenstalk.com/foods-to-avoid-while-dieting/)
-- [female celebrity diet plans](https://celebs.allwomenstalk.com/insane-celebrity-fad-diets/)
-- [8 Reasons You Can Not Ignore to Diet This Very Win...](https://diet.allwomenstalk.com/reasons-you-can-not-ignore-to-diet-this-very-winter/)
 - [7 Most over-Rated Diet Supplements ...](https://diet.allwomenstalk.com/most-over-rated-diet-supplements/)
 - [7 Unfortunate Reasons Why Women Gain Weight Fast ....](https://weightloss.allwomenstalk.com/7-reasons-women-gain-weight-fast/)
+- [female celebrity diet plans](https://celebs.allwomenstalk.com/insane-celebrity-fad-diets/)
+- [8 Destructive Dieting Habits ...](https://diet.allwomenstalk.com/destructive-dieting-habits/)
 - [eating white bread](https://baking.allwomenstalk.com/good-reasons-to-stop-eating-white-bread/)
+- [8 Reasons You Can Not Ignore to Diet This Very Win...](https://diet.allwomenstalk.com/reasons-you-can-not-ignore-to-diet-this-very-winter/)
+- [diet no](https://diet.allwomenstalk.com/definite-diet-no-nos/)
+- [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
+- [diet cheating](https://diet.allwomenstalk.com/times-when-its-ok-to-cheat-on-your-diet/)
 - [10 Surprising Causes of Weight Gain ...](https://allwomenstalk.com/10-surprising-causes-of-weight-gain/)
 - [8 Causes of Obesity ...](https://allwomenstalk.com/10-causes-of-obesity/)
 

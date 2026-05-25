@@ -74,16 +74,16 @@ What’s your favorite healthy sweet snack? Which of these would you like to try
 
 ## Related Posts
 
-- [smellstastes good but weird when it becomes an ice...](https://food.allwomenstalk.com/7-super-delish-ways-to-pimp-up-your-ice-cream/)
-- [honeydukes sweet shop](https://lifestyle.allwomenstalk.com/more-eye-candy-than-honeydukes-sweet-shop/)
+- [beauty pie under eye corrector](https://food.allwomenstalk.com/sinful-and-super-fresh-granitas-all-the-cool-girls-are-eating-this-summer/)
+- [healthy dessert blog](https://food.allwomenstalk.com/dessert-bloggers-on-instagram-that-will-make-your-mouth-water/)
+- [chocolate cake for breakfast](https://food.allwomenstalk.com/science-says-chocolate-cake-for-breakfast-is-brilliant/)
 - [christmas cupcakes design](https://food.allwomenstalk.com/christmas-cupcakes-to-make-asap/)
 - [salad cake](https://food.allwomenstalk.com/mind-blowing-salad-cakes-for-girls-who-cant-stand-salad/)
-- [beauty pie under eye corrector](https://food.allwomenstalk.com/sinful-and-super-fresh-granitas-all-the-cool-girls-are-eating-this-summer/)
-- [fruit based desserts](https://food.allwomenstalk.com/any-girl-can-learn-to-make-healthy-fruit-desserts/)
 - [new york sweet tooth](https://travel.allwomenstalk.com/this-latest-museum-of-ice-cream-in-nyc-will-blow-your-mind/)
-- [chocolate cake for breakfast](https://food.allwomenstalk.com/science-says-chocolate-cake-for-breakfast-is-brilliant/)
+- [honeydukes sweet shop](https://lifestyle.allwomenstalk.com/more-eye-candy-than-honeydukes-sweet-shop/)
+- [fruit based desserts](https://food.allwomenstalk.com/any-girl-can-learn-to-make-healthy-fruit-desserts/)
 - [raspberry pi 3 tutorial](https://food.allwomenstalk.com/tutorials-for-bakers-who-love-to-have-fun/)
-- [healthy dessert blog](https://food.allwomenstalk.com/dessert-bloggers-on-instagram-that-will-make-your-mouth-water/)
+- [smellstastes good but weird when it becomes an ice...](https://food.allwomenstalk.com/7-super-delish-ways-to-pimp-up-your-ice-cream/)
 - [Tasty Treats ...](https://allwomenstalk.com/tasty-treats/)
 - [34 Irresistible Chilled Desserts for Girls on Thei...](https://food.allwomenstalk.com/scrumptious-chilled-desserts-for-all-your-summertime-cheat-days/)
 

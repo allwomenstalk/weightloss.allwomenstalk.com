@@ -57,15 +57,15 @@ What’s your favorite kind of pizza? Which of these tips will you try next time
 ## Related Posts
 
 - [healthiest snacks at movie theater](https://food.allwomenstalk.com/how-to-eat-healthy-at-the-movie-theater/)
-- [spice up slim down](https://weightloss.allwomenstalk.com/ways-to-slim-down-your-shopping-cart/)
-- [how to kick food addiction](https://diet.allwomenstalk.com/how-to-help-stop-your-junk-food-addiction/)
 - [food prep tips](https://food.allwomenstalk.com/professional-tips-for-making-healthy-food-prep-a-breeze/)
-- [alternative to calorie counting](https://weightloss.allwomenstalk.com/things-to-do-instead-of-counting-calories/)
-- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
 - [what is the messiest food to eat](https://food.allwomenstalk.com/best-ways-to-eat-messy-foods/)
 - [triscuit glycemic index](https://diet.allwomenstalk.com/how-to-snack-in-a-balanced-way/)
+- [how to kick food addiction](https://diet.allwomenstalk.com/how-to-help-stop-your-junk-food-addiction/)
 - [clean eating casseroles](https://weightloss.allwomenstalk.com/low-calorie-casseroles-thatll-let-you-stick-to-your-diet/)
+- [alternative to calorie counting](https://weightloss.allwomenstalk.com/things-to-do-instead-of-counting-calories/)
+- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
 - [eatright meal prep](https://food.allwomenstalk.com/meal-prep-ideas-to-help-you-eat-right-all-week-long/)
+- [spice up slim down](https://weightloss.allwomenstalk.com/ways-to-slim-down-your-shopping-cart/)
 - [7 Ways to save Money on Eating out ...](https://money.allwomenstalk.com/ways-to-save-money-on-eating-out/)
 - [10 Ways to Reduce Calorie Intake ...](https://allwomenstalk.com/10-ways-to-reduce-calorie-intake/)
 

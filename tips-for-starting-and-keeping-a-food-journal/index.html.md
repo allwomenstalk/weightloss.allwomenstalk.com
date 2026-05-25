@@ -42,16 +42,16 @@ These are some tips to help you start a food journal. Which ones do you plan to 
 
 ## Related Posts
 
-- [7 Things to Give up for a Healthier Life ...](https://health.allwomenstalk.com/things-to-give-up-for-a-healthier-life/)
-- [7 Ways to Avoid Gaining Weight from Eating out of ...](https://weightloss.allwomenstalk.com/ways-to-avoid-gaining-weight-from-eating-out-of-boredom/)
-- [9 Foodie Places You Need to Visit before You Go on...](https://eatial.com/foodie-places-you-need-to-visit-before-you-go-on-a-diet/)
-- [How to Stop the Snack Attack in Its Tracks: You Ne...](https://food.allwomenstalk.com/how-to-stop-the-snack-attack-in-its-tracks-you-need-to-do-any-of-these-things-instead/)
-- [Cut out Coke - 7 Helpful Hints to Remove Soda from...](https://diet.allwomenstalk.com/cut-out-coke-helpful-hints-to-remove-soda-from-your-diet/)
-- [7 Tips for Starting a Clean Eating Lifestyle ...](https://diet.allwomenstalk.com/tips-for-starting-a-clean-eating-lifestyle/)
-- [What Kind of Diet Will Give You a Longer Life](https://food.allwomenstalk.com/what-kind-of-diet-will-give-you-a-longer-life/)
-- [7 Tips for Easy Meal Planning ...](https://money.allwomenstalk.com/tips-for-easy-meal-planning/)
 - [what is fresh food](https://food.allwomenstalk.com/watch-what-you-eat-how-to-make-sure-your-food-is-fresh/)
 - [7 Things to Know before Doing a Soup Cleanse ...](https://health.allwomenstalk.com/things-to-know-before-doing-a-soup-cleanse/)
+- [7 Ways to Avoid Gaining Weight from Eating out of ...](https://weightloss.allwomenstalk.com/ways-to-avoid-gaining-weight-from-eating-out-of-boredom/)
+- [7 Tips for Starting a Clean Eating Lifestyle ...](https://diet.allwomenstalk.com/tips-for-starting-a-clean-eating-lifestyle/)
+- [What Kind of Diet Will Give You a Longer Life](https://food.allwomenstalk.com/what-kind-of-diet-will-give-you-a-longer-life/)
+- [How to Stop the Snack Attack in Its Tracks: You Ne...](https://food.allwomenstalk.com/how-to-stop-the-snack-attack-in-its-tracks-you-need-to-do-any-of-these-things-instead/)
+- [9 Foodie Places You Need to Visit before You Go on...](https://eatial.com/foodie-places-you-need-to-visit-before-you-go-on-a-diet/)
+- [Cut out Coke - 7 Helpful Hints to Remove Soda from...](https://diet.allwomenstalk.com/cut-out-coke-helpful-hints-to-remove-soda-from-your-diet/)
+- [7 Things to Give up for a Healthier Life ...](https://health.allwomenstalk.com/things-to-give-up-for-a-healthier-life/)
+- [7 Tips for Easy Meal Planning ...](https://money.allwomenstalk.com/tips-for-easy-meal-planning/)
 - [7 Inexpensive Tips to Improve Your Diet ...](https://diet.allwomenstalk.com/inexpensive-tips-to-improve-your-diet/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 

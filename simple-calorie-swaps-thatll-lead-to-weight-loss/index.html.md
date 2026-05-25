@@ -56,16 +56,16 @@ With these simple food swaps it is easy to see you can make changes to better yo
 
 ## Related Posts
 
-- [orzo rice](https://food.allwomenstalk.com/foods-thatll-help-you-lose-the-weight-you-want-gone/)
-- [can you lose weight by eating beans](https://weightloss.allwomenstalk.com/why-you-should-eat-beans-to-lose-weight/)
-- [cutting 500 calories a day](https://weightloss.allwomenstalk.com/how-to-cut-calories-a-day/)
-- [porangaba tea](https://weightloss.allwomenstalk.com/these-teas-will-boost-your-weight-loss-effort/)
-- [weighing yourself at night](https://weightloss.allwomenstalk.com/the-cardinal-rules-of-weighing-yourself/)
-- [turkey trots in colorado](https://fitness.allwomenstalk.com/turkey-trots-to-walk-off-your-thanksgiving-weight-gain/)
-- [cheapest ingredients](https://weightloss.allwomenstalk.com/the-cheapest-ingredients-thatll-help-you-lose-weight/)
-- [cameron diaz weight loss diet](https://weightloss.allwomenstalk.com/slim-like-a-star-the-best-celebrity-diet-books/)
 - [funny paintball gif](https://weightloss.allwomenstalk.com/crazy-weight-loss-fads-from-around-the-world/)
+- [porangaba tea](https://weightloss.allwomenstalk.com/these-teas-will-boost-your-weight-loss-effort/)
+- [cheapest ingredients](https://weightloss.allwomenstalk.com/the-cheapest-ingredients-thatll-help-you-lose-weight/)
+- [cutting 500 calories a day](https://weightloss.allwomenstalk.com/how-to-cut-calories-a-day/)
+- [weighing yourself at night](https://weightloss.allwomenstalk.com/the-cardinal-rules-of-weighing-yourself/)
 - [600 calorie burn workout](https://fitness.allwomenstalk.com/shed-unwanted-pounds-with-these-calorie-burning-workouts/)
+- [turkey trots in colorado](https://fitness.allwomenstalk.com/turkey-trots-to-walk-off-your-thanksgiving-weight-gain/)
+- [cameron diaz weight loss diet](https://weightloss.allwomenstalk.com/slim-like-a-star-the-best-celebrity-diet-books/)
+- [can you lose weight by eating beans](https://weightloss.allwomenstalk.com/why-you-should-eat-beans-to-lose-weight/)
+- [orzo rice](https://food.allwomenstalk.com/foods-thatll-help-you-lose-the-weight-you-want-gone/)
 - [8 Food Swaps to Help You Lose Weight ...](https://diet.allwomenstalk.com/food-swaps-to-help-you-lose-weight/)
 - [10 Easy Ways to Ditch 250 Calories a Day ...](https://health.allwomenstalk.com/easy-ways-to-ditch-250-calories-a-day/)
 

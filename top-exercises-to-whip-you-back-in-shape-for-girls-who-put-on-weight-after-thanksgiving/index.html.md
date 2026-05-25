@@ -56,16 +56,16 @@ So whip your holiday happy body into shape to lose your turkey loving pounds and
 
 ## Related Posts
 
+- [lazy stomach exercises](https://fitness.allwomenstalk.com/simple-yet-effective-ab-exercises-for-girls-lacking-in-effort/)
 - [gym fails videos](https://funny.allwomenstalk.com/hilarious-gym-fails-we-all-cant-help-but-laugh-at-and-maybe-relate-to/)
+- [bails workout](https://fitness.allwomenstalk.com/ask-yourself-these-questions-before-you-bail-on-a-workout/)
+- [what are moves on a treadmill](https://fitness.allwomenstalk.com/fat-blasting-moves-for-when-youre-sick-of-the-treadmill/)
+- [inshape for ladies](https://fitness.allwomenstalk.com/workouts-to-get-back-in-shape-for-girls-who-put-on-weight-during-christmas/)
+- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
+- [how much walking to burn 200 calories](https://fitness.allwomenstalk.com/easy-exercises-you-can-do-anywhere-to-burn-200-calories-in-only-15-minutes/)
 - [arielle loewen age](https://fitness.allwomenstalk.com/real-cross-fit-enthusiasts-you-should-be-amazed-by/)
 - [cardio barre calories](https://fitness.allwomenstalk.com/fit-girls-guide-to-the-best-fat-burning-workouts/)
-- [lazy stomach exercises](https://fitness.allwomenstalk.com/simple-yet-effective-ab-exercises-for-girls-lacking-in-effort/)
-- [how much walking to burn 200 calories](https://fitness.allwomenstalk.com/easy-exercises-you-can-do-anywhere-to-burn-200-calories-in-only-15-minutes/)
-- [inshape for ladies](https://fitness.allwomenstalk.com/workouts-to-get-back-in-shape-for-girls-who-put-on-weight-during-christmas/)
 - [busy girl workouts](https://fitness.allwomenstalk.com/workouts-you-can-do-in-minute-for-super-busy-girls/)
-- [what are moves on a treadmill](https://fitness.allwomenstalk.com/fat-blasting-moves-for-when-youre-sick-of-the-treadmill/)
-- [bails workout](https://fitness.allwomenstalk.com/ask-yourself-these-questions-before-you-bail-on-a-workout/)
-- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
 - [8 Tips to Get Back in Shape after a Pregnancy ...](https://weightloss.allwomenstalk.com/tips-to-get-back-in-shape-after-a-pregnancy/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 

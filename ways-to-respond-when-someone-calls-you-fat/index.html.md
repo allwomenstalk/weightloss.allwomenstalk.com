@@ -46,15 +46,15 @@ Do you have your own badass way of responding to someone who says you’re fat?
 
 ## Related Posts
 
-- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
 - [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
-- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
-- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
-- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
 - [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
+- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
+- [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
+- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
+- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
+- [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
 - [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
 - [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
-- [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
 - [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
 - [5 Tips to Winning the Weight Loss Battle...](https://health.allwomenstalk.com/tips-to-winning-the-weight-loss-battle/)
 - [7 Things NEVER to Say to Someone Whos Dieting ...](https://allwomenstalk.com/7-things-never-to-say-to-someone-whos-dieting/)

@@ -42,16 +42,16 @@ What to do: Stop making this excuse. There is no “obese” or “overweight”
 
 ## Related Posts
 
-- [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
-- [If Youre Having Trouble Losing Weight and Keeping ...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
-- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
-- [Diet Excuses....do You Fit in](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
-- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
-- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
 - [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
+- [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
+- [Diet Excuses....do You Fit in](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
+- [If Youre Having Trouble Losing Weight and Keeping ...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
 - [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
+- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
+- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
 - [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
 - [how do i stop thinking about food](https://weightloss.allwomenstalk.com/train-your-brain-to-stop-thinking-about-food-if-youre-on-the-road-to-losing-weight/)
+- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 - [10 Reasons Why You Are Not Losing Weight ...](https://weightloss.allwomenstalk.com/reasons-why-you-are-not-losing-weight/)
 
