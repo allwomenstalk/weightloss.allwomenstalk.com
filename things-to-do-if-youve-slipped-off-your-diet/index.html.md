@@ -3,7 +3,7 @@ title: "7 Things to do if Youve Slipped off Your Diet ..."
 description: "(Re)Start Your Food Journal; Draw up a New Eating Plan; Be Realistic; Short Circuit the Self Hatred; Plan a Series of Quick Workouts; More ..."
 url: "https://weightloss.allwomenstalk.com/things-to-do-if-youve-slipped-off-your-diet/"
 category: "weightloss"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Things to do if Youve Slipped off Your Diet ...
@@ -45,15 +45,15 @@ Top Photo Credit: [alancleaver_2000](https://www.flickr.com/photos/alancleaver/4
 ## Related Posts
 
 - [eating five times a day](https://weightloss.allwomenstalk.com/how-to-eat-five-times-a-day/)
-- [buddy weight loss](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
 - [how can i avoid the freshman 15](https://weightloss.allwomenstalk.com/ways-to-avoid-the-freshman-15/)
 - [cooking habits](https://cooking.allwomenstalk.com/8-healthy-cooking-habits-to-follow/)
-- [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
-- [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)
-- [8 Sneaky Ways to Cheat on Your Diet and Stay on Tr...](https://diet.allwomenstalk.com/8-sneaky-ways-to-cheat-on-your-diet-and-stay-on-track/)
-- [8 Ways to Ensure Diet Success ...](https://diet.allwomenstalk.com/ways-to-ensure-diet-success/)
-- [counting calories tips](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 - [7 Things to Remember about Serving Sizes ...](https://diet.allwomenstalk.com/things-to-remember-about-serving-sizes/)
+- [counting calories tips](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
+- [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)
+- [8 Ways to Ensure Diet Success ...](https://diet.allwomenstalk.com/ways-to-ensure-diet-success/)
+- [buddy weight loss](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
+- [8 Sneaky Ways to Cheat on Your Diet and Stay on Tr...](https://diet.allwomenstalk.com/8-sneaky-ways-to-cheat-on-your-diet-and-stay-on-track/)
+- [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 - [10 Things You Should do Instead of Dieting ...](https://allwomenstalk.com/10-things-you-should-do-instead-of-dieting/)
 

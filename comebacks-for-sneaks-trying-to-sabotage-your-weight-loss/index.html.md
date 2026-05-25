@@ -3,7 +3,7 @@ title: "7 Comebacks for Sneaks Trying to Sabotage Your Weight Loss ..."
 description: "“I Need Your Help and Understanding”; “Can I Take It Home for Later?”; “Mind Your Own Business”; “You Can Make Your Own Poor Choices”; “Are You the Food Police”; More ..."
 url: "https://weightloss.allwomenstalk.com/comebacks-for-sneaks-trying-to-sabotage-your-weight-loss/"
 category: "weightloss"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Comebacks for Sneaks Trying to Sabotage Your Weight Loss ...
@@ -42,15 +42,15 @@ What’s your standard comeback when someone criticizes your choices?
 
 ## Related Posts
 
+- [what causes a muffin top](https://diet.allwomenstalk.com/you-dont-have-muffin-top-this-is-whats-really-causing-that-roll/)
 - [highest sugar fruits](https://weightloss.allwomenstalk.com/insanely-high-in-sugar-fruits-all-slimming-girls-should-avoid/)
 - [things that slow down your metabolism](https://diet.allwomenstalk.com/everyday-things-that-make-your-metabolism-sluggish/)
-- [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
-- [girl that eats a lot](https://food.allwomenstalk.com/the-problems-for-girls-who-eat-a-lot/)
 - [new relationship weight gain](https://love.allwomenstalk.com/why-you-gain-more-weight-when-you-have-a-boyfriend/)
-- [what causes a muffin top](https://diet.allwomenstalk.com/you-dont-have-muffin-top-this-is-whats-really-causing-that-roll/)
 - [weight loss excuses](https://weightloss.allwomenstalk.com/excuses-you-hide-behind-when-youre-not-losing-weight-that-need-to-end/)
+- [girl that eats a lot](https://food.allwomenstalk.com/the-problems-for-girls-who-eat-a-lot/)
 - [scared to date](https://love.allwomenstalk.com/why-you-shouldnt-be-scared-to-eat-what-you-want-on-a-first-date/)
 - [fitness gurus](https://fitness.allwomenstalk.com/why-following-fitness-gurus-might-not-be-as-smart-as-you-think/)
+- [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
 - [why is dairy bad for you when trying to lose weigh...](https://diet.allwomenstalk.com/important-reasons-to-avoid-dairy-when-youre-trying-to-lose-weight/)
 - [7 Sneaky Ways to Cut Calories  Lose Weight ...](https://weightloss.allwomenstalk.com/7-sneaky-ways-to-cut-calories-lose-weight/)
 - [7 Crazy Myths about Weight Loss ...](https://weightloss.allwomenstalk.com/crazy-myths-about-weight-loss/)
