@@ -3,7 +3,7 @@ title: "How to Deal when You Broke up with Your Diet over the Weekend ..."
 description: "Omega 3; Sleep; Probiotics; Cardio; Detox; More ..."
 url: "https://weightloss.allwomenstalk.com/how-to-deal-when-you-broke-up-with-your-diet-over-the-weekend/"
 category: "weightloss"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # How to Deal when You Broke up with Your Diet  over the Weekend ...

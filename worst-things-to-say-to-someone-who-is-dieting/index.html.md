@@ -3,7 +3,7 @@ title: "Never Ever Say These Things to Someone Who is Dieting ..."
 description: "You’re Too Skinny; I Bet You Just Eat Salads, Right?; You Don’t Look Healthy; What Kind of Pill do You Take?; Diets Are a Waste of Time; More ..."
 url: "https://weightloss.allwomenstalk.com/worst-things-to-say-to-someone-who-is-dieting/"
 category: "weightloss"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Never Ever Say These Things to Someone Who is Dieting ...
@@ -56,16 +56,16 @@ If you know someone close to you who’s not eating or is dieting on a dangerous
 
 ## Related Posts
 
-- [7 Reasons Youre Not Losing Belly Fat and How to Co...](https://weightloss.allwomenstalk.com/reasons-youre-not-losing-belly-fat-and-how-to-combat-this/)
-- [7 Reasons Why Obesity is Contagious ...](https://weightloss.allwomenstalk.com/reasons-why-obesity-is-contagious/)
-- [gross facts about fast food](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
-- [7 Reasons Fruit Could Make You Fat ...](https://diet.allwomenstalk.com/reasons-fruit-could-make-you-fat/)
-- [7 Major Mistakes Not to Make when Going on a Vegan...](https://diet.allwomenstalk.com/major-mistakes-not-to-make-when-going-on-a-vegan-diet/)
-- [7 Reasons to Stop Taking so Many Supplements ...](https://health.allwomenstalk.com/reasons-to-stop-taking-so-many-supplements/)
-- [Why You Should Never Completely Cut out Carbs ...](https://diet.allwomenstalk.com/reasons-you-should-not-cut-out-carbs/)
 - [7 Beliefs That Make It Tough to Lose Weight ...](https://weightloss.allwomenstalk.com/beliefs-that-make-it-tough-to-lose-weight/)
+- [7 Reasons Why Obesity is Contagious ...](https://weightloss.allwomenstalk.com/reasons-why-obesity-is-contagious/)
 - [Avoid These 7 Extremely Addictive FoodsThat Sabota...](https://food.allwomenstalk.com/extremely-addictive-foods/)
+- [gross facts about fast food](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
 - [These Disastrous Diet Excuses Could Be Sabotaging ...](https://diet.allwomenstalk.com/worst-diet-excuses-you-need-to-stop-making/)
+- [7 Reasons Fruit Could Make You Fat ...](https://diet.allwomenstalk.com/reasons-fruit-could-make-you-fat/)
+- [7 Reasons to Stop Taking so Many Supplements ...](https://health.allwomenstalk.com/reasons-to-stop-taking-so-many-supplements/)
+- [7 Reasons Youre Not Losing Belly Fat and How to Co...](https://weightloss.allwomenstalk.com/reasons-youre-not-losing-belly-fat-and-how-to-combat-this/)
+- [Why You Should Never Completely Cut out Carbs ...](https://diet.allwomenstalk.com/reasons-you-should-not-cut-out-carbs/)
+- [7 Major Mistakes Not to Make when Going on a Vegan...](https://diet.allwomenstalk.com/major-mistakes-not-to-make-when-going-on-a-vegan-diet/)
 - [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
 - [Top 3 Dieting Mistakes to Avoid ...](https://allwomenstalk.com/dont-do-it-top-3-dieting-mistakes-to-avoid/)
 
