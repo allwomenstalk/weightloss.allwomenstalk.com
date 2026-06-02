@@ -3,7 +3,7 @@ title: "Genius Tips for Eating Healthy when Eating out ..."
 description: "Watch the Alcohol; Don’t Go out Feeling Overly Hungry; Carefully Read the Menu; Have a Starter for Your Main Course; Watch the Calories in Side Dishes; More ..."
 url: "https://weightloss.allwomenstalk.com/genius-tips-for-eating-healthy-when-eating-out/"
 category: "weightloss"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Genius Tips for Eating Healthy  when Eating out ...
