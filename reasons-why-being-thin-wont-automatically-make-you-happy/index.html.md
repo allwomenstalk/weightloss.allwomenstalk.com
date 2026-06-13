@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons Why Being Thin Wont Automatically Make You Happy ..."
+title: "7 Reasons Why Being Thin Won't Automatically Make You Happy ..."
 description: "It Won’t Give You Security; It is a Constant Battle; It Takes the Focus off Health; It Won't Give You Friends; It Won’t Make You Beautiful; More ..."
 url: "https://weightloss.allwomenstalk.com/reasons-why-being-thin-wont-automatically-make-you-happy/"
 category: "weightloss"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Reasons Why Being Thin Wont Automatically Make You Happy ...
+# 7 Reasons Why Being Thin Won't Automatically Make You Happy ...
 
 Ten years of my life were robbed by the need to be thin, but over the last two years specifically, I learned exactly why being thin won’t make you happy and finally learned what real happiness feels like. I started finding thin appealing when boys in middle school started noticing body properties of girls, and later in high school when super thin female celebrities or thin, [pretty girls](https://beauty.allwomenstalk.com/secrets-that-pretty-girls-wont-tell-you/) in school were the ideal for all guys I knew. As I listened to them talk about these women and how much they adored them, I found myself not feeling good enough. Though I was often seen as popular, pretty and someone who had a good body, I saw myself very differently. I suffered from rocky relationships with most men in my life and boys were no different. I was always trying to please everyone with my looks, my grades, my attitude, while inside being so insecure about myself. I learned many things about being thin, and gaining happiness was never one of them. Find out why being thin won’t make you necessarily make you happy, and how instead, the desire to be thin can rob you of the real thing. I’m not saying that those of you who are naturally thin can’t be happy, so please don’t misconstrue my words. What I’m talking about here is the obsession to be thin, and how that robs you of your happiness. Women can be thin and healthy, or thin and unhealthy. Thin doesn’t mean you’re unhappy or unhealthy, but not being thin doesn’t mean that either.
 
@@ -42,16 +42,16 @@ Happiness is a choice, not a number on a scale, and being thin will not automati
 
 ## Related Posts
 
-- [7 Reasons to Be Conscious of Your Daily Calorie In...](https://weightloss.allwomenstalk.com/reasons-to-be-conscious-of-your-daily-calorie-intake/)
-- [7 Diet Tricks That Dont Work to Stop Wasting Your ...](https://diet.allwomenstalk.com/diet-tricks-that-dont-work-to-stop-wasting-your-time-on/)
+- [7 Cellulite Myths You Need to Stop Believing Right...](https://beauty.allwomenstalk.com/cellulite-myths-you-need-to-stop-believing-right-now/)
+- [7 Diet Tricks That Don't Work to Stop Wasting Your...](https://diet.allwomenstalk.com/diet-tricks-that-dont-work-to-stop-wasting-your-time-on/)
+- [7 Drinks That Hinder Weight Loss and Are Best Avoi...](https://weightloss.allwomenstalk.com/drinks-that-hinder-weight-loss-and-are-best-avoided/)
+- [7 Scary Dangers of Being Overweight or Obese ...](https://weightloss.allwomenstalk.com/scary-dangers-of-being-overweight-or-obese/)
+- [7 Reasons the Paleo Diet Isn't for Everyone and Ho...](https://diet.allwomenstalk.com/reasons-the-paleo-diet-isnt-for-everyone-and-how-to-decide-if-it-will-work-for-you/)
 - [7 Reasons for Childhood Obesity and How to Combat ...](https://parenting.allwomenstalk.com/reasons-for-childhood-obesity-and-how-to-combat-it/)
-- [7 Reasons the Paleo Diet Isnt for Everyone and How...](https://diet.allwomenstalk.com/reasons-the-paleo-diet-isnt-for-everyone-and-how-to-decide-if-it-will-work-for-you/)
-- [7 Unhealthy Weight Loss Products You Should Defini...](https://weightloss.allwomenstalk.com/unhealthy-weight-loss-products-you-should-definitely-avoid/)
 - [7 Important Reasons You Should Never Skip Breakfas...](https://weightloss.allwomenstalk.com/important-reasons-you-should-never-skip-breakfast/)
 - [7 Ways You May Be Sabotaging Your Diet and Weight ...](https://weightloss.allwomenstalk.com/ways-you-may-be-sabotaging-your-diet-and-weight-loss-plan/)
-- [7 Drinks That Hinder Weight Loss and Are Best Avoi...](https://weightloss.allwomenstalk.com/drinks-that-hinder-weight-loss-and-are-best-avoided/)
-- [7 Cellulite Myths You Need to Stop Believing Right...](https://beauty.allwomenstalk.com/cellulite-myths-you-need-to-stop-believing-right-now/)
-- [7 Scary Dangers of Being Overweight or Obese ...](https://weightloss.allwomenstalk.com/scary-dangers-of-being-overweight-or-obese/)
+- [7 Unhealthy Weight Loss Products You Should Defini...](https://weightloss.allwomenstalk.com/unhealthy-weight-loss-products-you-should-definitely-avoid/)
+- [7 Reasons to Be Conscious of Your Daily Calorie In...](https://weightloss.allwomenstalk.com/reasons-to-be-conscious-of-your-daily-calorie-intake/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 - [10 Reasons Why You Are Not Losing Weight ...](https://weightloss.allwomenstalk.com/reasons-why-you-are-not-losing-weight/)
 

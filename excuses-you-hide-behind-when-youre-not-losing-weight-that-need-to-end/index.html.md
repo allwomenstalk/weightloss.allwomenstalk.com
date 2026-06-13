@@ -1,12 +1,12 @@
 ---
-title: "5 Excuses You Hide behind when Youre Not Losing Weight That Need to End ..."
+title: "5 Excuses You Hide behind when You're Not Losing Weight That Need to End ..."
 description: "I do Not Have Time to Exercise; Meal Preparation Takes Too Long; It is Too Expensive to Be Healthy; I Have to Cheat over the Weekend; My Whole Family is Overweight, It is Just in My Genetics; More ..."
 url: "https://weightloss.allwomenstalk.com/excuses-you-hide-behind-when-youre-not-losing-weight-that-need-to-end/"
 category: "weightloss"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 5 Excuses You Hide behind when Youre Not Losing Weight That Need to End ...
+# 5 Excuses You Hide behind when You're Not Losing Weight That Need to End ...
 
 Are you looking for **excuses you hide behind when not losing weight**? As a personal trainer and fitness expert, I have heard every excuse in the book as to why someone cannot lose weight. I get it, it is hard to lose weight, but if it were easy than everyone would be a healthy weight (and I would be out of a job). Losing weight takes time, effort, and hard work. If you have tried and failed to lose weight maybe you are making one of these common **excuses you hide behind when not losing weight.**
 
@@ -42,16 +42,16 @@ What to do: Stop making this excuse. There is no “obese” or “overweight”
 
 ## Related Posts
 
-- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
-- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
-- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
-- [Diet Excuses....do You Fit in](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
-- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
 - [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
+- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
+- [Diet Excuses!....do You Fit in??](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
+- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
+- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
+- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
 - [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
 - [how do i stop thinking about food](https://weightloss.allwomenstalk.com/train-your-brain-to-stop-thinking-about-food-if-youre-on-the-road-to-losing-weight/)
-- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
-- [If Youre Having Trouble Losing Weight and Keeping ...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
+- [If You're Having Trouble Losing Weight and Keeping...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
+- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 - [10 Reasons Why You Are Not Losing Weight ...](https://weightloss.allwomenstalk.com/reasons-why-you-are-not-losing-weight/)
 

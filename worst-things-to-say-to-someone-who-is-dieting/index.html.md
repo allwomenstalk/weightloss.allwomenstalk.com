@@ -1,12 +1,12 @@
 ---
-title: "Never Ever Say These Things to Someone Who is Dieting ..."
+title: "Never, Ever Say These Things to Someone Who is Dieting ..."
 description: "You’re Too Skinny; I Bet You Just Eat Salads, Right?; You Don’t Look Healthy; What Kind of Pill do You Take?; Diets Are a Waste of Time; More ..."
 url: "https://weightloss.allwomenstalk.com/worst-things-to-say-to-someone-who-is-dieting/"
 category: "weightloss"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Never Ever Say These Things to Someone Who is Dieting ...
+# Never, Ever Say These Things to Someone Who is Dieting ...
 
 Some of the worst things to say to someone who’s dieting are obvious while others - not so much. In today’s age and time, dieting has become one of the most controversial issues that none of us can seem to escape. We all know there are just some things you really don’t want to hear when you’re on a diet, so how about we give the same courtesy to others. Even if you don’t agree with someone’s diet, be sure you avoid some of the worst things to say to someone who is dieting and remember "to each her own”.
 
@@ -56,16 +56,16 @@ If you know someone close to you who’s not eating or is dieting on a dangerous
 
 ## Related Posts
 
-- [Why You Should Never Completely Cut out Carbs ...](https://diet.allwomenstalk.com/reasons-you-should-not-cut-out-carbs/)
 - [7 Reasons Fruit Could Make You Fat ...](https://diet.allwomenstalk.com/reasons-fruit-could-make-you-fat/)
-- [Avoid These 7 Extremely Addictive FoodsThat Sabota...](https://food.allwomenstalk.com/extremely-addictive-foods/)
-- [7 Reasons Why Obesity is Contagious ...](https://weightloss.allwomenstalk.com/reasons-why-obesity-is-contagious/)
+- [Why You Should Never Completely Cut out Carbs ...](https://diet.allwomenstalk.com/reasons-you-should-not-cut-out-carbs/)
 - [7 Beliefs That Make It Tough to Lose Weight ...](https://weightloss.allwomenstalk.com/beliefs-that-make-it-tough-to-lose-weight/)
-- [gross facts about fast food](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
-- [7 Reasons Youre Not Losing Belly Fat and How to Co...](https://weightloss.allwomenstalk.com/reasons-youre-not-losing-belly-fat-and-how-to-combat-this/)
 - [These Disastrous Diet Excuses Could Be Sabotaging ...](https://diet.allwomenstalk.com/worst-diet-excuses-you-need-to-stop-making/)
-- [7 Major Mistakes Not to Make when Going on a Vegan...](https://diet.allwomenstalk.com/major-mistakes-not-to-make-when-going-on-a-vegan-diet/)
+- [7 Reasons Why Obesity is Contagious ...](https://weightloss.allwomenstalk.com/reasons-why-obesity-is-contagious/)
 - [7 Reasons to Stop Taking so Many Supplements ...](https://health.allwomenstalk.com/reasons-to-stop-taking-so-many-supplements/)
+- [gross facts about fast food](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
+- [Avoid These 7 Extremely Addictive FoodsThat Sabota...](https://food.allwomenstalk.com/extremely-addictive-foods/)
+- [7 Major Mistakes Not to Make when Going on a Vegan...](https://diet.allwomenstalk.com/major-mistakes-not-to-make-when-going-on-a-vegan-diet/)
+- [7 Reasons You're Not Losing Belly Fat and How to C...](https://weightloss.allwomenstalk.com/reasons-youre-not-losing-belly-fat-and-how-to-combat-this/)
 - [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
 - [Top 3 Dieting Mistakes to Avoid ...](https://allwomenstalk.com/dont-do-it-top-3-dieting-mistakes-to-avoid/)
 

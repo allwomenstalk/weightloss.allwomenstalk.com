@@ -1,12 +1,12 @@
 ---
-title: "Girls Guide on How to Think Your Way Thin ..."
+title: "Girl's Guide on How to Think Your Way Thin ..."
 description: "Think of Yourself as Already Thin; Do Not Put Getting in Shape off until Summer!; Think to Yourself That You Can do Anything; Think to Yourself That You Have to Have Patience!; Think to Yourself That You Are Worth It; More ..."
 url: "https://weightloss.allwomenstalk.com/ways-to-think-yourself-thin/"
 category: "weightloss"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Girls Guide on How to Think Your Way Thin ...
+# Girl's Guide on How to Think Your Way Thin ...
 
 Do you want some **ways to think yourself thin**? Do you ever have those days when you are having lunch or dinner and give in to overeating, thinking, "Oh, who gives a shit?" University of Toledo psychology professor Janet Polivy calls it the "what the hell" effect and says it causes people to devour so much food that they feel they will never get back on track. The following are tips to change your mind and some **ways to think yourself thin**.
 
@@ -54,16 +54,16 @@ Sources
 
 ## Related Posts
 
-- [foods body](https://food.allwomenstalk.com/foods-for-a-bikini-body/)
-- [is portion control good for weight loss](https://weightloss.allwomenstalk.com/how-to-use-portion-control-plates-to-lose-weight/)
-- [best protein powder for weight loss dr oz](https://weightloss.allwomenstalk.com/dr-oz-review-of-all-natural-weight-loss-aids/)
-- [belly buge](https://weightloss.allwomenstalk.com/ways-to-get-rid-of-belly-fat-in-time-for-summer/)
 - [lazy weight loss hacks](https://weightloss.allwomenstalk.com/weight-loss-tips-for-lazy-girls/)
 - [accountability in weight loss](https://weightloss.allwomenstalk.com/tips-for-holding-yourself-accountable-for-weight-loss/)
-- [Fat Girl Life Hacks ...](https://beauty.allwomenstalk.com/fat-girl-life-hacks/)
+- [best protein powder for weight loss dr oz](https://weightloss.allwomenstalk.com/dr-oz-review-of-all-natural-weight-loss-aids/)
+- [foods body](https://food.allwomenstalk.com/foods-for-a-bikini-body/)
 - [walk away the pounds success stories](https://weightloss.allwomenstalk.com/how-to-walk-your-way-to-weight-loss-2/)
+- [belly buge](https://weightloss.allwomenstalk.com/ways-to-get-rid-of-belly-fat-in-time-for-summer/)
 - [what easy exercises burn belly fat](https://weightloss.allwomenstalk.com/easy-exercises-to-burn-belly-fat/)
+- [Fat Girl Life Hacks ...](https://beauty.allwomenstalk.com/fat-girl-life-hacks/)
 - [seven day challenge](https://weightloss.allwomenstalk.com/video-guide-for-the-day-challenge-to-lose-1-2-inches-of-belly-fat/)
+- [is portion control good for weight loss](https://weightloss.allwomenstalk.com/how-to-use-portion-control-plates-to-lose-weight/)
 - [17 Tips on How to Lose Weight Fast for Teenage Gir...](https://weightloss.allwomenstalk.com/tips-on-how-to-lose-weight-fast-for-teenage-girls/)
 - [Life Changing Books for Girls Trying to Lose Weigh...](https://books.allwomenstalk.com/inspiring-weight-loss-books-to-get-you-well-inspired/)
 

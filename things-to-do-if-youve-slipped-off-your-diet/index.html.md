@@ -1,12 +1,12 @@
 ---
-title: "7 Realistic Things to Do If Youve Slipped Off Your Diet"
+title: "7 Realistic Things to Do If You've Slipped Off Your Diet"
 description: "(Re)Start Your Food Journal; Draw up a New Eating Plan; Be Realistic; Short Circuit the Self Hatred; Plan a Series of Quick Workouts; More ..."
 url: "https://weightloss.allwomenstalk.com/things-to-do-if-youve-slipped-off-your-diet/"
 category: "weightloss"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Realistic Things to Do If Youve Slipped Off Your Diet
+# 7 Realistic Things to Do If You've Slipped Off Your Diet
 
 Dieting isn’t easy and, because we’re all human and no one is perfect, we’re bound to trip up every now and again. If you’ve recently found yourself descending from whole-grains and steamed veg to fried chicken and chocolate cake, don’t be too hard on yourself; it happens to the best of us. A minor diet slip doesn't mean your entire journey is ruined. To help you get back on the healthy train again, I’ve had a think and put together a list of 7 things to do if you’ve slipped off your diet.
 
@@ -56,16 +56,16 @@ We all experience diet issues at some point, and while stumbling off the track t
 
 ## Related Posts
 
-- [8 Sneaky Ways to Cheat on Your Diet and Stay on Tr...](https://diet.allwomenstalk.com/8-sneaky-ways-to-cheat-on-your-diet-and-stay-on-track/)
+- [buddy weight loss](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
 - [how can i avoid the freshman 15](https://weightloss.allwomenstalk.com/ways-to-avoid-the-freshman-15/)
 - [eating five times a day](https://weightloss.allwomenstalk.com/how-to-eat-five-times-a-day/)
 - [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
-- [buddy weight loss](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
-- [7 Things to Remember about Serving Sizes ...](https://diet.allwomenstalk.com/things-to-remember-about-serving-sizes/)
-- [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)
-- [8 Ways to Ensure Diet Success ...](https://diet.allwomenstalk.com/ways-to-ensure-diet-success/)
-- [counting calories tips](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 - [cooking habits](https://cooking.allwomenstalk.com/8-healthy-cooking-habits-to-follow/)
+- [counting calories tips](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
+- [7 Things to Remember about Serving Sizes ...](https://diet.allwomenstalk.com/things-to-remember-about-serving-sizes/)
+- [8 Ways to Ensure Diet Success ...](https://diet.allwomenstalk.com/ways-to-ensure-diet-success/)
+- [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)
+- [8 Sneaky Ways to Cheat on Your Diet and Stay on Tr...](https://diet.allwomenstalk.com/8-sneaky-ways-to-cheat-on-your-diet-and-stay-on-track/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 - [10 Things You Should do Instead of Dieting ...](https://allwomenstalk.com/10-things-you-should-do-instead-of-dieting/)
 
