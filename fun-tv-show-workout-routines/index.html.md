@@ -1,20 +1,28 @@
 ---
-title: "8 Fun TV Show Workout Routines ..."
+title: "8 Fun TV Show Workouts: How to Stay Active While Binge-Watching"
 description: "Pretty Little Liars; New Girl; The Walking Dead; Friends; Doctor Who; More ..."
 url: "https://weightloss.allwomenstalk.com/fun-tv-show-workout-routines/"
 category: "weightloss"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
-# 8 Fun TV Show Workout Routines ...
+# 8 Fun TV Show Workouts: How to Stay Active While Binge\-Watching
 
-The best way to work out is by doing a routine that's fun and entertaining, which is where fun TV show workouts come in handy! These workout routines can be a huge motivator if you commit to following the guidelines completely! It's also a great way to multi-task catching up on your favorite show. So instead of sitting on the couch the next time you're watching your reruns or new episodes of your favorite TV shows, try these fun TV show workout routines instead!
+The best way to stay active is by doing a routine that is fun and entertaining. This is where engaging **workout TV shows** come in handy! These workout routines can be a huge motivator if you commit to following the guidelines completely. It is also a great way to multi-task by catching up on your favorite series. So instead of just sitting on the couch the next time you are watching reruns or new episodes of your favorite TV shows, try these fun **TV show workouts** instead.
+
+To help you get started, here are a few benefits of combining your screen time with exercise:
+
+- It distracts you from the physical effort.
+
+- You can easily fit fitness into your daily downtime.
+
+- It makes repetitive cardio much more enjoyable.
 
 ## 1. Pretty Little Liars
 
-First up on our list of TV show workouts is none other than Pretty Little Liars! Whether or not you are willing to admit it, this show is one of those addicting shows that takes us all back to high school. Plus, watching the girls in their awesome outfits may be an extra boost for you to exercise! So whether you're newly addicted to the show and trying to catch up, or just having a marathon on a rainy day, get off the couch and feel better about sitting in front of the TV!
+First up on our list of TV show workouts is none other than Pretty Little Liars! Whether or not you are willing to admit it, this is one of those addicting shows that takes us all back to high school. Watching the characters in their awesome outfits may be an extra boost for you to exercise. So whether you are newly addicted to the show and trying to catch up, or just having a marathon on a rainy day, get off the couch and feel better about sitting in front of the TV! You can find episodes to stream on [Max](https://www.max.com/) if you need to catch up.
 
-**Theme song:** Do high knees until it's over
+**Theme song:** Do high knees until it is over
 
 **When someone gets a text from A:** 20 sit-ups
 
@@ -24,7 +32,7 @@ First up on our list of TV show workouts is none other than Pretty Little Liars!
 
 **When anyone uses their cellphone:** 5 squats
 
-**When Hanna shops:** Do a plank until she's done shopping
+**When Hanna shops:** Do a plank until she is done shopping
 
 **When someone gets kissed:** 10 lunges per leg
 
@@ -32,13 +40,13 @@ First up on our list of TV show workouts is none other than Pretty Little Liars!
 
 **When someone tells a lie:** 10 reverse crunches
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
 
 ## 2. New Girl
 
-New Girl is a great show to have a workout routine for because the same types of things happen in almost every episode. Schmidt has a hilarious one liner, Jessica does something awkward, and Nick and Jess keep having weird moments together. Plus, being forced to watch Cece the model may just be the motivation you need to keep exercising! Either that or the motivation of wanting to grab a Schmidt look-alike someday!
+New Girl is a great show to have a workout routine for because the same types of things happen in almost every episode. Schmidt has a hilarious one-liner, Jessica does something awkward, and Nick and Jess keep having weird moments together. Plus, being forced to watch Cece the model may just be the motivation you need to keep exercising! It is one of the top [fun ways to burn calories](https://weightloss.allwomenstalk.com/fun-ways-to-burn-calories/) at home. Either that or the motivation of wanting to grab a Schmidt look-alike someday.
 
-**Theme song:** Do Russian twists until it's over (if short theme, do 10 jumping jacks after)
+**Theme song:** Do Russian twists until it is over (if short theme, do 10 jumping jacks after)
 
 **Every time Jess sings:** 10 sit-ups
 
@@ -50,19 +58,19 @@ New Girl is a great show to have a workout routine for because the same types of
 
 **Every time Schmidt says something hilarious:** 15 lunges per leg
 
-**Every time Schmidt mentions Cece:** 10 push ups
+**Every time Schmidt mentions Cece:** 10 push-ups
 
 **Every time Cece visits the loft:** 10 burpees
 
-**Every time you see the locker room bathroom:** 30 second side plank per side
+**Every time you see the locker room bathroom:** 30-second side plank per side
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
 
 ## 3. The Walking Dead
 
-Don't worry, I didn't forget about all of you Walking Dead fans out there! I'm actually surprised so many girls love the show but I find it awesome that there are! I tried to keep the numbers low as there is usually a ton of these that happen over the course of an episode. Just keep track of how many it adds up to and do them at your own pace. Just pretend you're practicing to survive a real zombie Apocalypse!
+Do not worry, I did not forget about all of you Walking Dead fans out there. I am actually surprised so many women love the show, but I find it awesome that they do. I tried to keep the numbers low as there are usually a ton of these events that happen over the course of an episode. Just keep track of how many it adds up to and do them at your own pace. Just pretend you are practicing to survive a real zombie apocalypse! Check out the official [AMC The Walking Dead page](https://www.amc.com/shows/the-walking-dead) for the latest updates.
 
-**Theme song:** Plank until it's over
+**Theme song:** Plank until it is over
 
 **Every time you see a walker:** 5 squats
 
@@ -72,29 +80,29 @@ Don't worry, I didn't forget about all of you Walking Dead fans out there! I'm a
 
 **Every time someone screams:** 10 lunges per leg
 
-**Every time someone cries:**10 reverse crunches
+**Every time someone cries:** 10 reverse crunches
 
-**Every time some draws a weapon:** 5 push ups
+**Every time someone draws a weapon:** 5 push-ups
 
 **Someone refers to the living:** 5 burpees
 
-**Every time Rick talks on the walkie talkie:** 20 bicycles
+**Every time Rick talks on the walkie-talkie:** 20 bicycles
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
 
 ## 4. Friends
 
-Hopefully I'm not alone in saying that I could watch re-runs of Friends episodes any day of the week! If you're the same way, then you will love this fun Friends TV show workout! Even though the show has ended, it's still fun to have marathons every now and then when you need a few laughs and some nostalgia. So next time you want to revisit your 'Friends,' why not throw in a little exercise too!
+Hopefully I am not alone in saying that I could watch re-runs of Friends episodes any day of the week. If you are the same way, then you will love this fun Friends TV show workout! Even though the show has ended, it is still fun to have marathons every now and then when you need a few laughs and some nostalgia. So next time you want to revisit your friends, why not throw in a little exercise too? It pairs well with [healthy snacks for movie night](https://weightloss.allwomenstalk.com/healthy-snacks-for-movie-night/).
 
-**Theme song:** Do jumping jacks until it's over
+**Theme song:** Do jumping jacks until it is over
 
 **Every time Chandler makes a joke:** 20 crunches
 
 **Every time Joey does something stupid:** 25 squats
 
-**Every time someone goes on a date:** 10 push ups
+**Every time someone goes on a date:** 10 push-ups
 
-**Every time Phoebe sings:** 1 minute wall sit
+**Every time Phoebe sings:** 1-minute wall sit
 
 **When everyone is at Central Perk:** 10 burpees
 
@@ -102,39 +110,47 @@ Hopefully I'm not alone in saying that I could watch re-runs of Friends episodes
 
 **Ross says anything geeky:** 20 mountain climbers
 
-**Rachel talks about fashion or money:** 1 minute plank
+**Rachel talks about fashion or money:** 1-minute plank
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
+
+Here is a quick breakdown of what you can expect from these aerobic TV shows:
+
+| TV Show | Workout Focus | Intensity |
+| :--- | :--- | :--- |
+| Pretty Little Liars | Core & Legs | Medium |
+| New Girl | Full Body | Low to Medium |
+| The Walking Dead | Cardio & Strength | High |
 
 ## 5. Doctor Who
 
-Lately I feel like people have become addicted to this British science fiction TV show! If you haven't gotten into the show yet, they have a few seasons on Netflix for you to start watching. If you find that you're getting addicted, why not add a workout routine to your Doctor Who marathon? That way you can go back in time with the Doctor as well as with your weight!
+Lately I feel like people have become addicted to this British science fiction TV show. If you have not gotten into the show yet, there are many ways to start watching online. If you find that you are getting addicted, why not add a workout routine to your Doctor Who marathon? That way you can go back in time with the Doctor as well as with your fitness goals! For all the classic and new episodes, [BBC Doctor Who](https://www.bbc.co.uk/doctorwho) is a great place to start.
 
-**Theme song:** Jump rope until it's over
+**Theme song:** Jump rope until it is over
 
-**Every time some says Doctor:** 10 jumping jacks
+**Every time someone says Doctor:** 10 jumping jacks
 
 **Every time the Doctor says run:** 15 squats
 
 **Every time someone gets in or out of the Tardis:** 20 crunches
 
-**Every time you hear the Tardis:** 1 minute bicycle
+**Every time you hear the Tardis:** 1-minute bicycle
 
-**Anyone says their catch phrase:** 10 leg lifts
+**Anyone says their catchphrase:** 10 leg lifts
 
-**Every time the Doctor sonic's something:** 15 Russian twists
+**Every time the Doctor sonics something:** 15 Russian twists
 
-**Every time the Doctor gets angry:** 45 second wall sit
+**Every time the Doctor gets angry:** 45-second wall sit
 
 **Every time they gain a new companion:** 10 burpees
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
 
 ## 6. Glee
 
-Glee is a great workout TV show because it includes music that will pump you up to dance around! So feel free to do your own exercises during breaks between these ones when the cast is singing a song you love. Embrace your inner Gleek and give this Glee workout a try the next time you're in a singing and dancing mood!
+Glee is a great workout TV show because it includes music that will pump you up to dance around. So feel free to do your own exercises during breaks between these ones when the cast is singing a song you love. Embrace your inner Gleek and give this Glee workout a try the next time you are in a singing and dancing mood! This pairs excellently with [cardio routines you can do at home](https://weightloss.allwomenstalk.com/cardio-routines-you-can-do-at-home/).
 
-**Theme song:** Run in place until it's over
+**Theme song:** Run in place until it is over
 
 **Anytime anyone breaks out in song:** 15 jumping jacks
 
@@ -142,55 +158,55 @@ Glee is a great workout TV show because it includes music that will pump you up 
 
 **Every time Sue gives someone advice:** 5 tricep dips
 
-**Every time Rachel doesn't get her way:** 10 push ups
+**Every time Rachel does not get her way:** 10 push-ups
 
 **Every time Kurt is bullied:** 10 leg lifts per leg
 
-**Every time a same sex couple has a moment:** 1 minute plank
+**Every time a same-sex couple has a moment:** 1-minute plank
 
 **Every time someone kisses:** 10 burpees
 
 **Every time Finn dances:** 20 crunches
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
 
 ## 7. How I Met Your Mother
 
-With this show making its way to the final season, it may be good to go back to the beginning and watch some reruns! Plus, I don't know about you, but I never get tired of watching Barney and his crazy antics. Plus, aside from some exercise, you could also take away some valuable life lessons from the show that you didn't realize before. By the way, who else can't wait to find out who the mother is finally!
+With this show having wrapped up its final season, it is great to go back to the beginning and watch some reruns. I never get tired of watching Barney and his crazy antics. Aside from some exercise, you could also take away some valuable life lessons from the show that you did not realize before. It is definitely one of the most engaging work out television shows to keep you busy.
 
-**Theme song:** Plank until it's over
+**Theme song:** Plank until it is over
 
 **Every time Barney says legendary:** 10 crunches
 
-**Anytime anyone high fives someone:** 10 push ups
+**Anytime anyone high fives someone:** 10 push-ups
 
-**Every time you hear Ted's narrating:** 5 burpees
+**Every time you hear Ted narrating:** 5 burpees
 
-**Every time Barney hits on a girl:** 15 jumping jacks
+**Every time Barney hits on a woman:** 15 jumping jacks
 
 **Every time Marshall and Lily kiss:** 10 squats
 
-**Reference to Canada:** 30 sit ups
+**Reference to Canada:** 30 sit-ups
 
 **Every time Robin talks about her job:** 10 lunges per leg
 
 **When anyone drinks a beer:** 10 bicycles
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
 
 ## 8. The Big Bang Theory
 
-This is one of those shows that I really need to get caught up with! What better way to catch up with the series than by watching the missed episodes while doing a little workout?
+This is one of those shows that is perfect for catching up on. What better way to catch up with the series than by watching the missed episodes while doing a little workout? You can grab a mat and check out the [official CBS page](https://www.cbs.com/shows/big_bang_theory/) to see where it is currently streaming.
 
-**Theme song:** Do jumping jacks until it's over
+**Theme song:** Do jumping jacks until it is over
 
-**Penny says sweetie:** 5 push ups
+**Penny says sweetie:** 5 push-ups
 
 **Every time Sheldon knocks on a door:** 20 crunches
 
 **Every time Sheldon recites a fact:** 30 jump ropes
 
-**Every time take out food is shown:** 20 leg lifts per leg
+**Every time takeout food is shown:** 20 leg lifts per leg
 
 **Every time Raj whispers:** 5 burpees
 
@@ -198,24 +214,24 @@ This is one of those shows that I really need to get caught up with! What better
 
 **Anytime someone walks upstairs:** 25 knee highs
 
-**Bazinga:** 1 minute wall sit
+**Bazinga:** 1-minute wall sit
 
-**Commercial break:** Jog in place during first three commercials
+**Commercial break:** Jog in place during the first three commercials
 
-These are not meant to be taken as serious workout routines. If you really want to lose weight, make sure to do a steady workout routine rather than sporadic exercises. However, if you were already planning on being on the couch watching your shows, you might as well throw in some exercises! It will always help you to burn some extra calories as well as not feel so bad for hanging out with your TV all day. Do you enjoy working out while watching TV?
+These are not meant to be taken as serious workout routines. If you really want to lose weight, make sure to do a steady workout routine rather than sporadic exercises. However, if you were already planning on being on the couch watching your shows, you might as well throw in some exercises. It will always help you to burn some extra calories as well as not feel so bad for hanging out with your TV all day. Do you enjoy working out while watching TV?
 
 ## Related Posts
 
 - [couch exercises to lose belly fat](https://weightloss.allwomenstalk.com/workouts-you-can-do-on-your-couch/)
+- [things to do while commuting](https://weightloss.allwomenstalk.com/ways-to-exercise-while-commuting/)
+- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
+- [how to make stomach tight](https://weightloss.allwomenstalk.com/ways-to-get-a-tight-stomach/)
+- [13 Ways to Get a Better Butt ...](https://weightloss.allwomenstalk.com/ways-to-get-a-better-butt/)
+- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
+- [healthyfitness](https://fitness.allwomenstalk.com/magazines-that-can-help-you-get-in-shape/)
 - [best cellulite exercise](https://health.allwomenstalk.com/best-cellulite-butt-workout-moves/)
 - [couples workout ideas](https://weightloss.allwomenstalk.com/7-workout-ideas-for-couples-2/)
-- [13 Ways to Get a Better Butt ...](https://weightloss.allwomenstalk.com/ways-to-get-a-better-butt/)
-- [how to make stomach tight](https://weightloss.allwomenstalk.com/ways-to-get-a-tight-stomach/)
-- [do a belly roll](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
-- [tone and tighten](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
-- [things to do while commuting](https://weightloss.allwomenstalk.com/ways-to-exercise-while-commuting/)
 - [sitting on an exercise ball while watching tv](https://weightloss.allwomenstalk.com/ways-to-exercise-while-watching-tv/)
-- [healthyfitness](https://fitness.allwomenstalk.com/magazines-that-can-help-you-get-in-shape/)
 - [8 Fun Ways to Exercise This Summer ...](https://weightloss.allwomenstalk.com/fun-ways-to-exercise-this-summer/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 

@@ -3,7 +3,7 @@ title: "7 Ways to Reduce Your Calorie Intake over Christmas ..."
 description: "Watch Alcohol Intake; Light Lunch; Smaller Portions; Cut a Course; Sweet Treats & Snacks; More ..."
 url: "https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/"
 category: "weightloss"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Ways to Reduce Your Calorie Intake over Christmas ...
@@ -42,16 +42,16 @@ So you can still enjoy delicious meals over Christmas without piling on the poun
 
 ## Related Posts
 
+- [stock up groceries](https://food.allwomenstalk.com/ways-to-plan-your-meals-and-stick-to-it/)
+- [7 Ways to Say No to Food Peer Pressure during the ...](https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/)
+- [9 Realistic Ways to Start and Stick to Healthier H...](https://health.allwomenstalk.com/realistic-ways-to-start-and-stick-to-healthier-habits/)
 - [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
+- [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
 - [7 Healthy Cooking Resolutions to Make in 2019 ...](https://food.allwomenstalk.com/healthy-cooking-resolutions-to-make-in/)
 - [7 Ways to Lower Your Cholesterol ...](https://health.allwomenstalk.com/ways-to-lower-your-cholesterol/)
 - [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
 - [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
 - [7 Ways to Eat Healthy during the Holidays ...](https://diet.allwomenstalk.com/ways-to-eat-healthy-during-the-holidays/)
-- [7 Ways to Say No to Food Peer Pressure during the ...](https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/)
-- [9 Realistic Ways to Start and Stick to Healthier H...](https://health.allwomenstalk.com/realistic-ways-to-start-and-stick-to-healthier-habits/)
-- [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
-- [stock up groceries](https://food.allwomenstalk.com/ways-to-plan-your-meals-and-stick-to-it/)
 - [10 Ways Not to Gain Weight during the Holiday Seas...](https://allwomenstalk.com/10-ways-not-to-gain-weight-during-the-holiday-season/)
 - [12 Easy Ways to Not Put Weight during Holidays ...](https://allwomenstalk.com/12-easy-ways-not-to-put-weight-during-holidays/)
 
