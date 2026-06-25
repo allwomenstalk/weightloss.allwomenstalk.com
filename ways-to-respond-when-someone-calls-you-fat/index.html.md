@@ -3,7 +3,7 @@ title: "5 Badass Ways to Respond to Someone Who Says You're Fat ..."
 description: "\"Thank You. so Are You.\"; \"Really? I Had No Idea.\"; \"OMG! is That so Bad?\"; \"You Look Marvelous!\"; \"I’m Loving It!\"; More ..."
 url: "https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/"
 category: "weightloss"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 5 Badass Ways to Respond to Someone Who Says You're Fat ...
@@ -46,16 +46,16 @@ Do you have your own badass way of responding to someone who says you’re fat?
 
 ## Related Posts
 
+- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
+- [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
 - [how to comfort a friend who got rejected](https://teen.allwomenstalk.com/how-to-comfort-a-friend-who-has-received-a-college-rejection-letter/)
 - [how do you know a fake person](https://inspiration.allwomenstalk.com/ways-to-know-if-a-nice-person-is-fake/)
 - [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
-- [cut negativity](https://inspiration.allwomenstalk.com/how-to-cut-negative-people-from-your-life/)
-- [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
+- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
+- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
 - [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
 - [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
-- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
 - [fight fare](https://inspiration.allwomenstalk.com/how-to-fight-fair-and-win/)
-- [what is a bad kisser](https://love.allwomenstalk.com/how-to-deal-with-a-bad-kisser/)
 - [5 Tips to Winning the Weight Loss Battle...](https://health.allwomenstalk.com/tips-to-winning-the-weight-loss-battle/)
 - [7 Things NEVER to Say to Someone Who's Dieting ...](https://allwomenstalk.com/7-things-never-to-say-to-someone-whos-dieting/)
 

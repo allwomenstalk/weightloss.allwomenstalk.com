@@ -3,7 +3,7 @@ title: "7 Blatant Lies We Tell Ourselves about Dieting ..."
 description: "I’ll Start Tomorrow…or Monday; I Deserve a Treat Because I’ve Had a Hard Day; One Cookie Won’t Hurt That Much; Liquid Calories Aren’t That Big of a Deal; A Bite Here and There Doesn’t Count; More ..."
 url: "https://weightloss.allwomenstalk.com/blatant-lies-we-tell-ourselves-about-dieting/"
 category: "weightloss"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Blatant Lies We Tell Ourselves about Dieting ...
@@ -42,16 +42,16 @@ These are 7 blatant lies we tell ourselves about dieting. Which ones have you fa
 
 ## Related Posts
 
-- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
-- [Shocking! This is Why We Weigh More than People 50...](https://health.allwomenstalk.com/why-do-people-weigh-more-now-than-years-ago/)
-- [Why Are You Always so Hungry?](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
-- [Nobody Tells You These 7 Things about Weight Loss ...](https://weightloss.allwomenstalk.com/nobody-tells-you-these-things-about-weight-loss/)
-- [Don't Lose Weight if These Apply to You 🤔!](https://weightloss.allwomenstalk.com/you-do-not-need-to-lose-weight-if-these-are-true-for-you/)
-- [You Will Not Believe What Trans Fats Are Doing to ...](https://diet.allwomenstalk.com/you-will-not-believe-what-trans-fats-are-doing-to-your-body/)
-- [7 Major Reasons Your Smoothies Aren't Working 🤔 ....](https://weightloss.allwomenstalk.com/why-your-smoothies-arent-helping-you-lose-weight/)
 - [Are You Eating More than You Realize?](https://weightloss.allwomenstalk.com/are-you-eating-more-than-you-realize/)
-- [hand diet](https://weightloss.allwomenstalk.com/what-should-you-know-about-the-hand-diet/)
+- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
+- [You Will Not Believe What Trans Fats Are Doing to ...](https://diet.allwomenstalk.com/you-will-not-believe-what-trans-fats-are-doing-to-your-body/)
 - [Hard-Hitting Reasons for Giving up Soda for Girls ...](https://health.allwomenstalk.com/and-this-is-why-they-gave-up-diet-soda/)
+- [hand diet](https://weightloss.allwomenstalk.com/what-should-you-know-about-the-hand-diet/)
+- [Nobody Tells You These 7 Things about Weight Loss ...](https://weightloss.allwomenstalk.com/nobody-tells-you-these-things-about-weight-loss/)
+- [Shocking! This is Why We Weigh More than People 50...](https://health.allwomenstalk.com/why-do-people-weigh-more-now-than-years-ago/)
+- [Don't Lose Weight if These Apply to You 🤔!](https://weightloss.allwomenstalk.com/you-do-not-need-to-lose-weight-if-these-are-true-for-you/)
+- [Why Are You Always so Hungry?](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
+- [7 Major Reasons Your Smoothies Aren't Working 🤔 ....](https://weightloss.allwomenstalk.com/why-your-smoothies-arent-helping-you-lose-weight/)
 - [7 Crazy Myths about Weight Loss ...](https://weightloss.allwomenstalk.com/crazy-myths-about-weight-loss/)
 - [7 Faux-Pas for Dieters to Avoid ...](https://diet.allwomenstalk.com/faux-pas-for-dieters-to-avoid/)
 
