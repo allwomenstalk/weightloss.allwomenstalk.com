@@ -3,7 +3,7 @@ title: "The Ultimate Tea Diet by Mark \"Dr. Tea\" Ukra ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://weightloss.allwomenstalk.com/the-ultimate-tea-diet-by-mark-dr-tea-ukra/"
 category: "weightloss"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # The Ultimate Tea Diet by Mark "Dr. Tea" Ukra ...
@@ -30,16 +30,16 @@ Good luck!
 
 ## Related Posts
 
-- [dollar tree cocoa powder](https://food.allwomenstalk.com/dollar-tree-coffee-station-and-hot-cocoa-bar/)
-- [pina colada orange julius recipe](https://food.allwomenstalk.com/copycat-orange-julius-recipe-for-a-delicious-homemade-smoothie/)
-- [dirty soda recipes](https://food.allwomenstalk.com/tasty-and-unique-dirty-coke-mocktail/)
-- [taiwan bubble tea](https://food.allwomenstalk.com/delicious-and-authentic-taiwanese-milk-tea-recipe/)
 - [how to make tea with a keurig](https://food.allwomenstalk.com/redneck-tea-with-a-keurig/)
-- [egg nog shake fast food](https://food.allwomenstalk.com/copycat-mcdonalds-egg-nog-shake/)
-- [homemade pina colada](https://food.allwomenstalk.com/delicious-homemade-pina-colada-smoothie/)
-- [300ml semi skimmed milk calories](https://food.allwomenstalk.com/recipes-for-green-vegetable-drinks-that-are-sooo-good-for-you/)
+- [dollar tree cocoa powder](https://food.allwomenstalk.com/dollar-tree-coffee-station-and-hot-cocoa-bar/)
+- [dirty soda recipes](https://food.allwomenstalk.com/tasty-and-unique-dirty-coke-mocktail/)
+- [pina colada orange julius recipe](https://food.allwomenstalk.com/copycat-orange-julius-recipe-for-a-delicious-homemade-smoothie/)
 - [red vegetable juice](https://food.allwomenstalk.com/revitalizing-red-vegetable-drinks/)
+- [300ml semi skimmed milk calories](https://food.allwomenstalk.com/recipes-for-green-vegetable-drinks-that-are-sooo-good-for-you/)
+- [taiwan bubble tea](https://food.allwomenstalk.com/delicious-and-authentic-taiwanese-milk-tea-recipe/)
 - [starbucks strawberry jam](https://food.allwomenstalk.com/copycat-recipe-of-starbucks-sugar-free-strawberry-fizz/)
+- [homemade pina colada](https://food.allwomenstalk.com/delicious-homemade-pina-colada-smoothie/)
+- [egg nog shake fast food](https://food.allwomenstalk.com/copycat-mcdonalds-egg-nog-shake/)
 - [Top 10 Weight Loss Books ...](https://allwomenstalk.com/top-10-weight-loss-books/)
 - [Dieting You! - the 5-Factor Diet ...](https://allwomenstalk.com/dieting-you-the-5-factor-diet/)
 
